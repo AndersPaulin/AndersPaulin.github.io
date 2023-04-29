@@ -1,3 +1,5 @@
+![](/hjarta.jpg)
+
 **HJÄRTA AV GLAS**
 
 *Berättelse*
