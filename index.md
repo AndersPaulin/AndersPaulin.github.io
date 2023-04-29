@@ -3,7 +3,7 @@
 ## TODAY
 [Tankar 22 December 2021](/tankar.md)  
 [Hjärta av Glas](/hjarta.md)  
-Tibrosamlingen  
+[Tibrosamlingen](/tibro.md)    
 
 ## TOMORROW
 Juvelen  
