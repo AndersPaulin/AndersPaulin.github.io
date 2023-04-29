@@ -1,6 +1,6 @@
 HJÄRTA AV GLAS
 
-Berättelse
+*Berättelse*
 
 I det lilla landsbygdssamhället som utgör berättelsens landskap är livets kretslopp uppbyggt kring glasbruket. Här produceras så långt minnet sträcker sig tillbaka i tiden det unika röda rubinglaset. Men nu har glasmästaren dött och tagit det hemliga receptet med sig i graven, och samhällets innevånare har försatts i en slags dvala och lever vidare utanför tiden. Där ingen produktion längre pågår, upphör också all poetisk och politisk kraft och vision – dagarna och arbetet fortsätter, men samhället och dess själ har upphört. I centrum befinner sig siaren Hias, som hemsöks av profetiska syner och varsel av civilisationens och tidens slut. Glasbrukets aristokratiske ägare tar till allt mer förtvivlade medel i sina försök att återskapa det värdefulla glaset, innan han ger upp och låter glasbruket gå under i en anlagd eldsvåda.
 Berättelsen är uppbyggd kring tre spår: ett slags anekdotiskt färgade folksagor om bygden och dess invånare, det förindustriella samhällets alkemiska förbund mellan människa och en plats specifika råvaror, samt en egenartat optimistisk kontemplation över människans möjliga pånyttfödelse bortom den människocentrerade världsordningens kollaps. 
