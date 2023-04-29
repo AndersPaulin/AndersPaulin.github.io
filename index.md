@@ -2,7 +2,7 @@
 
 ## TODAY
 [Tankar 22 December 2021](/tankar.md)  
-[Folkteatern i Gävleborg](/hjarta.md)  
+[Hjärta av Glas](/hjarta.md)  
 Tibrosamlingen  
 
 ## TOMORROW
