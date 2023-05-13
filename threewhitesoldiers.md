@@ -4,4 +4,4 @@ THREE WHITE SOLDIERS
 
 This exhibition version of the archive Three White Soldiers is a audio-visual installation originally conceived for Skövde Konsthall.
 
-
+![]
