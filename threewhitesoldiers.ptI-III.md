@@ -64,7 +64,7 @@ Performance Three White Soldiers II/Rock This World + Academy platform SKOGEN, G
 Performance Three White Soldiers, I & II INKONST, Malmö
 
 
-*December 2015*
+*December 2015*  
 Publication co-operation with GLÄNTA, Gothenburg
 
 
