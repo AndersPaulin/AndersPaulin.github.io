@@ -32,16 +32,16 @@ our doing, knowing this means never to reach
 the promised land  
 of understanding.*  
 
-In collaboration with graduating students from Norwegian Theatre Academy:
-Felipe Osorio-Guzmán
-Klara Krämer
-Maria Wang Kvalheim
-Ragnhild Følling-Volden
-Armin
-Durga Bishwokarma
-Erik Fiksdal Røger
-Kaja Mærk Egeberg
-Karoline Clasen Holland
-Mari Pitkänen
-Moa Meinich
-Rasmus Stenager Jensen
+In collaboration with graduating students from Norwegian Theatre Academy:  
+Felipe Osorio-Guzmán  
+Klara Krämer  
+Maria Wang Kvalheim  
+Ragnhild Følling-Volden  
+Armin Hokmi. 
+Durga Bishwokarma  
+Erik Fiksdal Røger  
+Kaja Mærk Egeberg  
+Karoline Clasen Holland  
+Mari Pitkänen  
+Moa Meinich  
+Rasmus Stenager Jensen  
