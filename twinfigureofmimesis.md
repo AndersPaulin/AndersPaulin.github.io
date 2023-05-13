@@ -15,4 +15,4 @@ The essays are written in dialogue with, and responded by, Goran Sergej Pristas,
 
 Realeased by Skogen Community Press November 2018
 
-![](/twinfigurecover.jpg)  
+![](/TwinFigureCover.jpg)  
