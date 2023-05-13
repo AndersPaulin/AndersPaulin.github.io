@@ -1,6 +1,6 @@
 **THREE WHITE SOLDIERS pt I-III**  
 by Anders Paulin & Johan Forsman  
-Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019
+Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019  ![](/Nanexwheel.gif)  
 
 *The earth is the first economy  
 Connect with people  
@@ -75,5 +75,5 @@ Performance Three White Soldiers II/Rock This World at WELD, Stockholm
 *October 2016*  
 Performance Three White Soldiers II/Rock This World at FICTION/REALITY, a conference program at DANSEHALLERNE, Copenhagen
 
-![](/Nanexwheel.gif)  
+
 
