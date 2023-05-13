@@ -1,6 +1,6 @@
 **I SEE THE ROCKY ISLAND AGAIN**  
-*an auto-hypnosis meditation of materials from
-Arnold Schönberg, Karen Barad, Werner Herzog*
+**an auto-hypnosis meditation of materials from 
+Arnold Schönberg, Karen Barad, Werner Herzog**
 
 Directed by: Anders Paulin
 Concept and script: Anders Paulin
