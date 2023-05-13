@@ -4,9 +4,9 @@ Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019
 
 *The earth is the first economy  
 Connect with people  
-Keep doing what you´re doing. 
-Think in patterns. 
-Track the sky. 
+Keep doing what you´re doing.  
+Think in patterns.  
+Track the sky.  
 Use aspects  
 to see how it unfolds  
 There is a 528 hz chime  
