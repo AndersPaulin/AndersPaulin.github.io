@@ -30,9 +30,9 @@ In this anti-production of aesthetics, to use Pristas’ phrase, artistic labor 
 Conversations and talks:  
 Bojana Cvejić, Goran Sergej Pristaš, Mette Edvardsen, Katya Sander, Efva Lilja, Anders Paulin, Paula Caspao, Fredric Gies, Johan Forsman, Rodrigo Sobarzo de Larraechea, Sara Gebran.
 
-Performances:
-*No Title*, Mette Edvardsen
-*Prince Of Networks*, Rodrigo Sobarzo
-*Ribbon Dance*, Frederic Gies
-*Another 20*, Sara Gebran
-*Three White Soldiers, pt II/Rock This World*, Anders Paulin & Johan Forsman
+Performances:  
+*No Title*, Mette Edvardsen  
+*Prince Of Networks*, Rodrigo Sobarzo  
+*Ribbon Dance*, Frederic Gies  
+*Another 20*, Sara Gebran  
+*Three White Soldiers, pt II/Rock This World*, Anders Paulin & Johan Forsman  
