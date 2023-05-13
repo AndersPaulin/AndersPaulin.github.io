@@ -1,4 +1,4 @@
-**Juvelen - A Hauntology of Cultural Politics**
+**JUVELEN - A Hauntology of Cultural Politics**
 
 *Juvelen* is a transmedial investigation of Kulturhuset Stockholm as an arena for Swedish public sphere in the period 1968-2018. By tracing how the radical original visions of a People's Palace of the 60s gradually get integrated with contemporary neoliberal logics, the project makes a journey through a half century of changes of Swedish politics and collective imaginary
 
@@ -15,5 +15,9 @@ Kulturhuset is a charged symbol already when it opens half a century ago. The or
 In this perspective, the destiny of Benny Fredriksson is that he is so incredibly skilled at implementing an economic cultural policy that - like all neoliberal economy - looks amazing in theory but does not work in practice. It is an economy that is intrinsically parasitic, since its recipe is capitalizatin of existing assets without making new investments. Therefore the internal conflicts and wounds of the City Theatre grow as the outer success seemingly increases.
 
 Around the merging of Kulturhuset and the City Theatre 2013 a hauntology arises. The rethorics of a peoples palace, open and accessible for all, still live as an echo from the 60s vision of emancipatory participation. But now it is put to work in a model that is a neoliberal instrument, where all parts of the organisation are flexible and exchangeable in order to respond to measurable movements in the behaviour of its customers. The co-determination of citizens has been recasted into the free choice of consumers, and the nave of a unifying vision has been replaced by cost-effecient power concentration around an individual leader.
+
+![](/funpalace2.jpg)  
+
+![](/funpalacepic3.jpg)  
 
 The logic of *Juvelen* can be understood as a hybrid of archive art and poetic theatre machine. Theater as transmedial music box, mobile sculpture and hypertextual sampler, where the voices of different media - film, recorded text, animations, projected text and images - are orchestrated in a polymetric system that successively recomposes and re-negotiates the components of its material.
