@@ -1,7 +1,4 @@
-![](/neitherpointzero.jpg)
-
-# ANDERS PAULIN
-
+# ANDERS PAULIN  ![](/neitherpointzero.jpg)
 
 ## TODAY
 [Hjärta av Glas](/hjarta.md)  
