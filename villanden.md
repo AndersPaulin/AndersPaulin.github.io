@@ -17,7 +17,7 @@ Therefore, in our reading these and some other texts will co-exist side by side 
 
 PRESS-QUOTES on WILD DUCK  
 
-*Svenska Dagbladet*  
+*Svenska Dagbladet*   
 "A boldly wayward interpretation, at the same time accessible and consciously enigmatic."
 
 "It is supremely executed"
@@ -30,7 +30,7 @@ PRESS-QUOTES on WILD DUCK
 
 "Unique theatre art that doesn´t lean on tradition for one moment. Superbly well-played and perfectly unpredictable"
 
-*Aftenposten*
+*Aftenposten*  
 "Irresistable Wild Duck"
 
 "Groovy Wild Duck fricassee"
@@ -43,7 +43,7 @@ PRESS-QUOTES on WILD DUCK
 
 "A theatrical and essayistic circling of motives as identity and exclusion"
 
-*Norwegian Radio*
+*Norwegian Radio*  
 "The right not to understand"
 
 "The direction opens the text, without wanting to direct its reception"
@@ -56,10 +56,10 @@ PRESS-QUOTES on WILD DUCK
 
 "It is liberating not having to understand. The components of the performance are allowed to drift and take shape as they wish"
 
-*Dagsavisen*
+*Dagsavisen*  
 "The performance in itself is a slightly confusing experience, and I don´t know exactly how all this will fall into place as time goes. I am still in a process; as in an extension of Wild Duck's own flow of associatons."
 
-*Verdens Gang*
+*Verdens Gang*  
 "Absoutely successful"
 
 "Paragraph after paragraph in the law of normality-theatre is suspended: Nobody is somebody, everybody is everyone; the genres are mixed wildly, notions turned upside down, bent, cracked and everted."
