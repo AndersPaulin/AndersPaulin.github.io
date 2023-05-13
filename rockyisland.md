@@ -1,4 +1,4 @@
-**I SEE THE ROCKY ISLAND AGAIN**
+**I SEE THE ROCKY ISLAND AGAIN**  
 *an auto-hypnosis meditation of materials from
 Arnold Schönberg, Karen Barad, Werner Herzog*
 
@@ -45,3 +45,11 @@ Karoline Clasen Holland
 Mari Pitkänen  
 Moa Meinich  
 Rasmus Stenager Jensen  
+
+![](/rocky1.jpg)
+
+![](/rocky26.jpg)
+
+![](/rocky7.jpg)  
+
+
