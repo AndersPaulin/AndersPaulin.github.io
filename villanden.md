@@ -2,7 +2,7 @@
 **Nationaltheatret, Oslo**  
 *September-December 2012*
 
-![](/villanden5.jpg)
+![](/villanden2.jpg)
 
 "Hi, I am the real Hedvig. This is my dream. The dream is shared with a lot of other people, but I think of it as my dream - just like I think of the wild duck as my wild duck, even if it of course is its own. In the dream everything is as usual, but different. It is like reality, but reality seen as the exception; what always is but can not exist."
 
@@ -72,12 +72,9 @@ PRESS-QUOTES on WILD DUCK
 
 "A very un-traditional concretization of a classic text"
 
-![](/villanden1.jpg)
-
-![](/villanden2.jpg)
-
 ![](/villanden3.jpg)
 
 ![](/villanden4.jpg)
 
+![](/villanden5.jpg)
 
