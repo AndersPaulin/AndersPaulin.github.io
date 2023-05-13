@@ -19,6 +19,6 @@ Around the merging of Kulturhuset and the City Theatre 2013 a hauntology arises.
 The logic of *Juvelen* can be understood as a hybrid of archive art and poetic theatre machine. Theater as transmedial music box, mobile sculpture and hypertextual sampler, where the voices of different media - film, recorded text, animations, projected text and images - are orchestrated in a polymetric system that successively recomposes and re-negotiates the components of its material.
 
 
-![](/Funpalace2.jpg)  
+![](/FunPalace2.jpg)  
 
-![](/Funpalacepic3.jpg)  
+![](/FunPalacepic3.jpg)  
