@@ -5,7 +5,7 @@
 [Tibrosamlingen](/tibro.md)    
 
 ## TOMORROW
-[Juvelen](/juvelen.md)  
+[Juvelen](/Juvelen.md)  
 
 ## YESTERDAY
 [Three White Soldiers - The Exhibition](threewhitesoldiers.md)  
