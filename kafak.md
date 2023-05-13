@@ -14,4 +14,5 @@ Part 1 - the play, was a destabilizing journey through the themes of estrangemen
 
 Part 2 - the intervention into the National Theatre, was curated as a series of interventions, events, and projects by variety of individuals involved in contemporary art, architecture, film, performance and other fields invited to respond to the audience's journey into this adaptation of the work of Franz Kafka.
 
-KAAKF (FKAAK aka AAKKF) was a project by and with:   Janni Faurschou, Oliver Frljic, Joachim Hamou, Hugo Hopping, Jakob Jacobsen, Tor Lindstrand, Lene Mirdal, Anders Mossling, Anders Paulin, Goran Sergej Pristas (BADco.), Maria Rossing, Ulrika Pii Zeuthen and many more.
+KAAKF (FKAAK aka AAKKF) was a project by and with:   
+Janni Faurschou, Oliver Frljic, Joachim Hamou, Hugo Hopping, Jakob Jacobsen, Tor Lindstrand, Lene Mirdal, Anders Mossling, Anders Paulin, Goran Sergej Pristas (BADco.), Maria Rossing, Ulrika Pii Zeuthen and many more.
