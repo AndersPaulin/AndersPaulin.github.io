@@ -4,7 +4,7 @@ by Anders Paulin & Johan Forsman
 Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019
 
 
-*The earth is the first economy
+*The earth is the first economy  
 Connect with people
 Keep doing what you´re doing
 Think in patterns
