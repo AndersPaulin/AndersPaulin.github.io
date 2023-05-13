@@ -15,9 +15,9 @@
 [I See The Rocky Island Again](/rockyisland.md)  
 [Double Feature](/doublefeature.md)  
 [Fiction/Reality](/fictionreality.md)  
-Parzival  
-Wild Duck
-KAFKA (FAKAK aka AKFAK)  
+[Parzival](/parzival.md)
+[Wild Duck](/villanden.md)
+[KAFAK (FAKAK aka AKFAK)(kafak.md)
 Temporary National Theatre  
 Vertical Gardening Jalazoun  
 Neither You Nor Me  
