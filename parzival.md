@@ -21,4 +21,6 @@ With music composed by electropop duo The Marble Fauns.
 
 *"The face itself is redundancy. It is itself in redundancy with the redundancies of signifiance or frequency, and those of resonance or subjectivity. The face constructs the wall that the signifier needs in order to bounce off of; it constitutes the wall of the signifier, the frame or screen. The face digs the hole that subjectification needs in order to break through; it constitutes the black hole of subjectivity as consciousness or passion, the camera, the third eye.  
 Concrete faces cannot be assumed to come ready-made. They are engendered by an abstract machine of faciality, which produces them at the same time as it gives the signifier its white wall and subjectivity its black hole. Thus the black hole/white wall system is, to begin with, not a face but the abstract machine that produces faces according to the changeable combinations of its cogwheels. Do not expect the abstract machine to resemble what it produces."*  
-from A Thousand PlateausDeleuze & Guattari,
+from *A Thousand Plateaus*, Deleuze & Guattari
+
+
