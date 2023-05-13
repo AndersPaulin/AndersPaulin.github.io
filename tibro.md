@@ -1,6 +1,6 @@
-TIBROSAMLINGEN
+**TIBROSAMLINGEN**
 
-*Halvsanna Berättelser om Världen och Tibro*
+**Halvsanna Berättelser om Världen och Tibro**
 
 Tibrosamlingen är den första föreställningen inom ramen för Anders Paulins och Johan Forsmans projekt The Promise som startade 2020 och avslutas 2050.
 
