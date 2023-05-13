@@ -4,7 +4,7 @@ produced by TEMPORARY NATIONAL THEATRE at The Royal Theatre of Denmark
 
 *In a recent publication of essaistic fragments on theater work, Anders Paulin writes:  
 "I feel an aversion against filling out the gaps; also an increasing suspicion towards the intentions behind my own rhetorics. Time after time I seem to reveal my linguistic figures with seeking connections and truths where there are none."
-In his directing, Paulin has become known for uncovering the gaps, dislodging texts and gestures so as to avoid falsely cohesive appearances and statements. Some find it deeply annoying that Paulin never just tells a story, as it is. Others, like me, get intellectually stimulated by his kaleidoscopic stagings, with continuous disruptions, antitheses and comments. Anders Paulin is using the theatre space as a cultural arena for polyphonic examinations.*
+In his directing, Paulin has become known for uncovering the gaps, dislodging texts and gestures so as to avoid falsely cohesive appearances and statements. Some find it deeply annoying that Paulin never just tells a story, as it is. Others, like me, get intellectually stimulated by his kaleidoscopic stagings, with continuous disruptions, antitheses and comments. Anders Paulin is using the theatre space as a cultural arena for polyphonic examinations.*  
 Theresa Benér, Teaterkritik
 
 KAKFA (FAAKK aka AAKFK) dealt with the work of Franz Kafka as a post-national subject, within the limits and possibilities of a temporary national stage, conceived by TNT as an interplay between drama and intervention.  
