@@ -1,4 +1,4 @@
-![Uploading neitherpointzeropic.jpg…]()
+
 # ANDERS PAULIN
 
 
