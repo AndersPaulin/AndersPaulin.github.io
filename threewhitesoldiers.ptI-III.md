@@ -1,6 +1,8 @@
 **THREE WHITE SOLDIERS pt I-III**  
 by Anders Paulin & Johan Forsman  
-Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019  ![](/Nanexwheel.gif)  
+Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019
+
+![](/Nanexwheel.gif)  
 
 *The earth is the first economy  
 Connect with people  
