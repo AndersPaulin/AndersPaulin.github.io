@@ -1,8 +1,7 @@
 **FICTION|REALITY**  
 **Conference at Dansehallerne, Copenhagen 5-8 October 2016**
 
-![](/bebisspegel.jpg)  
-
+![](/bebisspegel.jpg)
 
 Fiction|Reality was formally one of several outcomes of Anders Paulin's research project Non Mimetic Performativity at the Danish School of Performing Arts 2014-2016. The conference gathered 150 people from early morning to midnight for 4 days. Participants came from the field as well as art educations in Denmark, Sweden, Finland and Norway. The program was a mix of various conversation formats and performances, focusing on the interaction between aesthetics and their discursive potential.
 
