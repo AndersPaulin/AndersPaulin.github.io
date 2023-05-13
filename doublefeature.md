@@ -1,3 +1,7 @@
+![](DoFeIs.jpg)
+
+
+
 **DOUBLE FEATURE**. 
 **The Echo of The Subject**  
 *(Hölderlin/China Mieville/Anders Paulin/Bojana Cvejić)*  
@@ -21,7 +25,5 @@ Caesura acts as a point of interruption, a counter-rhythmic rupture as Hölderli
 ![](DoFe2.jpg)
 
 ![](DoFe3.jpg)
-
-![](DoFeIs.jpg)
 
 
