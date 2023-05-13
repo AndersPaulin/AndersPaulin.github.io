@@ -17,3 +17,11 @@ In theater listening might mean freedom from participation, from speaking or doi
 Caesura acts as a point of interruption, a counter-rhythmic rupture as Hölderlin wrote of Greek tragedies when humans and gods meet briefly. What happens then is the “tragic transport” which “is essentially empty, and the most unbounded of all.” It is the moment where a succession of thoughts is halted, so that the thinking itself appears. Perhaps this is the thought of the spectator, who like the actor is thinking along the whole way.
 
 *Bojana Cvejić*
+
+![](DoFe2.jpg)
+
+![](DoFe3.jpg)
+
+![](DoFeIs.jpg)
+
+
