@@ -43,10 +43,10 @@ the year to come. These events will ambulate between a number of collaborating v
 and platforms in Sweden, Norway, Denmark, Finland and possibly Island. We will also
 produce an annual publication.
 
-The first symposium Art as Practice - Art as Objectwas scheduled 10-12 September 2020 at Ställbergs Gruva. Due to covid-19 the symposium has been postponed to 16-19 June 2021.
-The publication Art as Practice - Art as Object will have its release 25 September at höjden (Stockholm), Skogen (Gothenburg), DANSEatelier (Copenhagen) and WRAP (Bergen).
+The first symposium *Art as Practice - Art as Object* was scheduled 10-12 September 2020 at Ställbergs Gruva. Due to covid-19 the symposium has been postponed to 16-19 June 2021.
+The publication *Art as Practice - Art as Object* will have its release 25 September at höjden (Stockholm), Skogen (Gothenburg), DANSEatelier (Copenhagen) and WRAP (Bergen).
 
-Current Participants: Insister Space (dance/choreography platform Stockholm),
+*Participants*: Insister Space (dance/choreography platform Stockholm),
 DANSEatellier (dance and choreography platform Copenhagen), Skogen (art venue
 Gothenburg) studio nav (architect studio Stockholm), Museum of Impossible Forms (art
 platform Helsinki), Weld (dance venue, Stockholm), Non-Existing Center (art center
