@@ -79,8 +79,7 @@ Performance Three White Soldiers II/Rock This World at FICTION/REALITY, a confer
 
 ![](digging2.jpg)  
 
-
-![](Grammatology.Cover (kopia).jpg)  
+![](grammatologycover.jpg)  
 
 ![](handavtryck.jpg)  
 
