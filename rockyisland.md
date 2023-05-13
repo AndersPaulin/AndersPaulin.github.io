@@ -48,8 +48,6 @@ Rasmus Stenager Jensen
 
 ![](/rocky1.jpg)
 
-![](/rocky26.jpg)
-
 ![](/rocky7.jpg)  
 
 
