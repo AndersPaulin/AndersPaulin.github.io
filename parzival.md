@@ -12,7 +12,7 @@ Expressen
 *Ritual wow-mode and tranquil humor.*  
 Aftonbladet
 
-*A simultaneously smart and charmingly unanxious performance*
+*A simultaneously smart and charmingly unanxious performance*  
 Göteborgsposten
 
 Parzival was an exploration of how to make a translation of the objectives and tools based on non-mimetic storytelling in projects like Neither You Nor Me and Three White Soldiers to the context of youth theatre.  
