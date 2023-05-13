@@ -22,3 +22,6 @@ Producerat av Skogen med stöd av Statens Kulturråd
 
 Tack till Tibro Museum, Martin Toresson, Leif Ahnland, Nya Hotellet,
 Västergötlands Museum och alla vi träffat i Tibro.
+
+![](/skovde1.jpg) 
+
