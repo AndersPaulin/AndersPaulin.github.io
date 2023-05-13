@@ -2,6 +2,8 @@
 **Nationaltheatret, Oslo**  
 *September-December 2012*
 
+![](/villanden5.jpg)
+
 "Hi, I am the real Hedvig. This is my dream. The dream is shared with a lot of other people, but I think of it as my dream - just like I think of the wild duck as my wild duck, even if it of course is its own. In the dream everything is as usual, but different. It is like reality, but reality seen as the exception; what always is but can not exist."
 
 In 1884 Henrik Ibsen writes Wild Duck. In the play, a city apartment is utilized as a photography atelier; a simulacra-machine where human reality is transformed into images. Also, in the middle of their human lives, the attic of the Ekdal family is transformed into a symbolic other-space. Here lives not only the wild duck, but also chickens, rabbits and other animals – in other words, a non-human territory at the threshold of the human space.
