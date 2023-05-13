@@ -75,4 +75,5 @@ Performance Three White Soldiers II/Rock This World at WELD, Stockholm
 *October 2016*  
 Performance Three White Soldiers II/Rock This World at FICTION/REALITY, a conference program at DANSEHALLERNE, Copenhagen
 
+![](/2.Nanex kopia (kopia).gif)
 
