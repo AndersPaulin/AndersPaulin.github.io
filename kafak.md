@@ -2,6 +2,8 @@
 *by Anders Paulin in co-operation with Tor Lindstrand*  
 produced by TEMPORARY NATIONAL THEATRE at The Royal Theatre of Denmark 
 
+![](/kafak1.jpg)
+
 *In a recent publication of essaistic fragments on theater work, Anders Paulin writes:  
 "I feel an aversion against filling out the gaps; also an increasing suspicion towards the intentions behind my own rhetorics. Time after time I seem to reveal my linguistic figures with seeking connections and truths where there are none."
 In his directing, Paulin has become known for uncovering the gaps, dislodging texts and gestures so as to avoid falsely cohesive appearances and statements. Some find it deeply annoying that Paulin never just tells a story, as it is. Others, like me, get intellectually stimulated by his kaleidoscopic stagings, with continuous disruptions, antitheses and comments. Anders Paulin is using the theatre space as a cultural arena for polyphonic examinations.*  
@@ -16,3 +18,21 @@ Part 2 - the intervention into the National Theatre, was curated as a series of 
 
 KAAKF (FKAAK aka AAKKF) was a project by and with:   
 Janni Faurschou, Oliver Frljic, Joachim Hamou, Hugo Hopping, Jakob Jacobsen, Tor Lindstrand, Lene Mirdal, Anders Mossling, Anders Paulin, Goran Sergej Pristas (BADco.), Maria Rossing, Ulrika Pii Zeuthen and many more.
+
+![](/kafak2.jpg)
+
+![](/kafak3.jpg)
+
+![](/kafak4.jpg)
+
+![](/kafak5.jpg)
+
+![](/kafak6.jpg)
+
+![](/kafak7.jpg)
+
+
+
+
+
+
