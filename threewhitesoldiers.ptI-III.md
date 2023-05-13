@@ -1,20 +1,18 @@
-**THREE WHITE SOLDIERS pt I-III**
-by Anders Paulin & Johan Forsman
-
+**THREE WHITE SOLDIERS pt I-III**  
+by Anders Paulin & Johan Forsman  
 Gothenburg, Copenhagen, Stockholm, Cairo, Malmö, Skövde 2014-2019
 
-
 *The earth is the first economy  
-Connect with people
-Keep doing what you´re doing
-Think in patterns
-Track the sky
-Use aspects
-to see how it unfolds
-There is a 528 hz chime
-that is pretty wonderful
-It resonates with the note F in the heart
-We could share that with you*
+Connect with people  
+Keep doing what you´re doing. 
+Think in patterns. 
+Track the sky. 
+Use aspects  
+to see how it unfolds  
+There is a 528 hz chime  
+that is pretty wonderful  
+It resonates with the note F in the heart  
+We could share that with you*  
 
 THREE WHITE SOLDIERS is an archive of stories, collected by Anders Paulin and Johan Forsman through a series of pilgrimages following the material as well as virtual relations of symbolic orders and value production in contemporary economy. Neither a critique nor capitulation towards the networking super speed of neoliberal semio-capitalism, rather an attempt to travel along its patterns and linguistic figures: A journey accompanied by the fetishes of the financial market, algo-spoofers, astronauts, bitcoin miners, ancient gods and japanese rice traders.
 
@@ -29,70 +27,52 @@ THREE WHITE SOLDIERS is a travelogue through the human history of symbolic think
 
 JOURNEYS/RESIDENCIES/PRESENTATIONS
 
-*March-April 2014*
-
+*March-April 2014*  
 Research trip Los Angeles/Joshua Tree/New York
 
 
-*June 2014*
-
+*June 2014*  
 Performance TEATER SORT/HVID, Copenhagen
 
 
-*November-December 2014*
-
+*November-December 2014*  
 Performance Three White Soldiers, version 1 + Academy Platform SKOGEN, Gothenburg
 
 
-*February 2015*
-
-
-Performance Three White Soldiers, version 1 at WELD, Stockholm
-
+*February 2015*  
+Performance Three White Soldiers, version 1 at WELD, Stockholm  
 Research trip Bitcoin Mine Boden/Iron Ore Mine Kiruna
 
 
-*March 2015*
-
-Academy Platform SKOGEN, Gothenburg
-
+*March 2015*  
+Academy Platform SKOGEN, Gothenburg  
 Guests: Annika Lundgren, Niklas Persson, Kanslibyrån, Leif Elggren, Marja-Leena Sillanpää, Chiara Giovando, Love Enqvist, Ewa Majewska
 
 
-*April 2015*
-
-Research trip Luxor, Egypt
-
+*April 2015*  
+Research trip Luxor, Egypt  
 Performance Three White Soldiers, part 1 at RAWABIT THEATRE, Cairo
 
 
-*August 2015*
-
-Research trip Kiruna, Sweden
-
-3 weeks Research, Workshops and Performance Three White Soldiers II/Rock This World
-
-Academy of Performing Arts, Copenhagen
+*August 2015*  
+Research trip Kiruna, Sweden  
+3 weeks Research, Workshops and Performance Three White Soldiers II/Rock This World, Academy of Performing Arts, Copenhagen
 
 
-*November 2015*
-
-Performance Three White Soldiers II/Rock This World + Academy platform SKOGEN, Gothenburg
-
+*November 2015*  
+Performance Three White Soldiers II/Rock This World + Academy platform SKOGEN, Gothenburg  
 Performance Three White Soldiers, I & II INKONST, Malmö
 
 
 *December 2015*
-
 Publication co-operation with GLÄNTA, Gothenburg
 
 
-*February 2016*
+*February 2016*  
 Performance Three White Soldiers II/Rock This World at WELD, Stockholm
 
 
-*October 2016*
-
+*October 2016*  
 Performance Three White Soldiers II/Rock This World at FICTION/REALITY, a conference program at DANSEHALLERNE, Copenhagen
 
 
