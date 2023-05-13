@@ -13,7 +13,7 @@
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
 [PIM - Para Institutional Models](/pim.md)  
 [I See The Rocky Island Again](/rockyisland.md)  
-Double Feature  
+[Double Feature](/doublefeature.md)  
 Fiction/Reality  
 Parzival  
 Wild Duck
