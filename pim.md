@@ -52,5 +52,8 @@ Gothenburg) studio nav (architect studio Stockholm), Museum of Impossible Forms 
 platform Helsinki), Weld (dance venue, Stockholm), Non-Existing Center (art center
 Ställberg) RISK (art collective Copenhagen), Runa B Skolseg (writer Oslo), Goro Tronsmo
 (director/artist Oslo), Ellen Söderhult (choreographer Stockholm), Annika Lundgren (artist
-Gothenburg), Sara Gebran (choreographer Copenhagen), Anders Paulin (dramaturge
+Gothenburg), Sara Gebran (choreographer Copenhagen), Anders Paulin (director/dramaturge
 Stockholm).
+
+
+![](/pimbook.jpg) 
