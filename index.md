@@ -12,7 +12,7 @@
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
 [PIM - Para Institutional Models](/pim.md)  
-I See The Rocky Island Again  
+[I See The Rocky Island Again](/rockyisland.md)  
 Double Feature  
 Fiction/Reality  
 Parzival  
