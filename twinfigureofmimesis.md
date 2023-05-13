@@ -1,4 +1,4 @@
-**TWIN FIGURE OF MIMESIS**
+**TWIN FIGURE OF MIMESIS**  
 **Essays&Script**
 
 *This could be said to be the story about the Twin Figure of Mimesis.*
