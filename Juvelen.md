@@ -16,8 +16,9 @@ In this perspective, the destiny of Benny Fredriksson is that he is so incredibl
 
 Around the merging of Kulturhuset and the City Theatre 2013 a hauntology arises. The rethorics of a peoples palace, open and accessible for all, still live as an echo from the 60s vision of emancipatory participation. But now it is put to work in a model that is a neoliberal instrument, where all parts of the organisation are flexible and exchangeable in order to respond to measurable movements in the behaviour of its customers. The co-determination of citizens has been recasted into the free choice of consumers, and the nave of a unifying vision has been replaced by cost-effecient power concentration around an individual leader.
 
+The logic of *Juvelen* can be understood as a hybrid of archive art and poetic theatre machine. Theater as transmedial music box, mobile sculpture and hypertextual sampler, where the voices of different media - film, recorded text, animations, projected text and images - are orchestrated in a polymetric system that successively recomposes and re-negotiates the components of its material.
+
+
 ![](/funpalace2.jpg)  
 
 ![](/funpalacepic3.jpg)  
-
-The logic of *Juvelen* can be understood as a hybrid of archive art and poetic theatre machine. Theater as transmedial music box, mobile sculpture and hypertextual sampler, where the voices of different media - film, recorded text, animations, projected text and images - are orchestrated in a polymetric system that successively recomposes and re-negotiates the components of its material.
