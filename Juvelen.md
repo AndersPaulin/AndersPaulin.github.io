@@ -1,4 +1,4 @@
-**Juvelen - A Hauntology of Cultural Politics**
+[] **Juvelen - A Hauntology of Cultural Politics**
 
 *Juvelen* is a transmedial investigation of Kulturhuset Stockholm as an arena for Swedish public sphere in the period 1968-2018. By tracing how the radical original visions of a People's Palace of the 60s gradually get integrated with contemporary neoliberal logics, the project makes a journey through a half century of changes of Swedish politics and collective imaginary
 
