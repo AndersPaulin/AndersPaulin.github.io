@@ -1,4 +1,4 @@
-PIM - Para Institutional Models
+**PIM - Para Institutional Models**
 
 Para Institutional Models rethinks the role and format of the art institution. PIM turns
 to the institution’s weight, gravity and creation of a public sphere, and gathers around art
