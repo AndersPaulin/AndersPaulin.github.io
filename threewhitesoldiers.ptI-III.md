@@ -70,8 +70,6 @@ Performance Three White Soldiers, I & II INKONST, Malmö
 Publication co-operation with GLÄNTA, Gothenburg
 
 
-![](/threewhitesoldierstrailer.mp4)  
-
 *February 2016*  
 Performance Three White Soldiers II/Rock This World at WELD, Stockholm
 
@@ -80,4 +78,4 @@ Performance Three White Soldiers II/Rock This World at WELD, Stockholm
 Performance Three White Soldiers II/Rock This World at FICTION/REALITY, a conference program at DANSEHALLERNE, Copenhagen
 
 
-
+![](/threewhitesoldierstrailer.mp4)  
