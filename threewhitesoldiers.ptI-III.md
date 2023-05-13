@@ -46,6 +46,7 @@ Performance Three White Soldiers, version 1 + Academy Platform SKOGEN, Gothenbur
 
 *February 2015*
 
+
 Performance Three White Soldiers, version 1 at WELD, Stockholm
 
 Research trip Bitcoin Mine Boden/Iron Ore Mine Kiruna
