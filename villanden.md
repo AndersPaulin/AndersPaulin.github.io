@@ -70,4 +70,12 @@ PRESS-QUOTES on WILD DUCK
 
 "A very un-traditional concretization of a classic text"
 
+![](/villanden1.jpg)
+
+![](/villanden2.jpg)
+
+![](/villanden3.jpg)
+
+![](/villanden4.jpg)
+
 
