@@ -8,10 +8,10 @@
 Juvelen  
 
 ## YESTERDAY
-[PIM - Para Institutional Models](/pim.md)  
 [Three White Soldiers - The Exhibition](threewhitesoldiers.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 Twin Figure Of Mimesis  
+[PIM - Para Institutional Models](/pim.md)  
 I See The Rocky Island Again  
 Double Feature  
 Fiction/Reality  
