@@ -6,7 +6,7 @@
 [Hjärta av Glas](/hjarta.md)  
 [Tibrosamlingen](/tibro.md)    
 
-## THINGS I WILL/WOULD LIKE TO DO
+## THINGS I WILL OR WOULD LIKE TO DO
 [Melancholy Of Resistance](/melancholy.md)  
 [Juvelen](/Juvelen.md)  
 
