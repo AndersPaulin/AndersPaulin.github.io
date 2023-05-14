@@ -27,7 +27,7 @@
 [Neither You Nor Me](/neither.md)  
 [Le Mépris](/mepris.md)  
 [Gösta Berlings Saga/Basel](/basel.md)  
-[Gösta Berlings Saga/Uppsala(/gostauppsala.md)  
+[Gösta Berlings Saga/Uppsala](/gostauppsala.md)  
 Mephisto, Deutsches Schauspielhaus  
 A Midsummernight's Dream  
 Kasimir und Karoline  
