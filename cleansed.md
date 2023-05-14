@@ -1,6 +1,7 @@
 **CLEANSED**  
 by Sarah Kane  
-**Det Nationale Scene, 2002**  
+**Det Nationale Scene, 2002** 
+
 ![](/cleansed1.jpg)
 
 *Contains everything you emotionally could possibly encounter...*  
