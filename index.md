@@ -2,16 +2,16 @@
 
 ![](/neithersmall.jpg)
 
-## THINGS I DO
+## TODAY
 [Hjärta av Glas](/hjarta.md)  
 [Tibrosamlingen](/tibro.md)    
 
-## THINGS I WILL OR WOULD LIKE TO DO
+## TOMORROW
 [Melancholy Of Resistance](/melancholy.md)  
 [Utsikt Över Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
-## THINGS I'VE DONE
+## YESTERDAY
 [Three White Soldiers - The Exhibition](threewhitesoldiers.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
