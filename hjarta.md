@@ -2,17 +2,14 @@
 
 **HJÄRTA AV GLAS**
 
-*Berättelse*
-
+*Berättelse*  
 I det lilla landsbygdssamhället som utgör berättelsens landskap är livets kretslopp uppbyggt kring glasbruket. Här produceras så långt minnet sträcker sig tillbaka i tiden det unika röda rubinglaset. Men nu har glasmästaren dött och tagit det hemliga receptet med sig i graven, och samhällets innevånare har försatts i en slags dvala och lever vidare utanför tiden. Där ingen produktion längre pågår, upphör också all poetisk och politisk kraft och vision – dagarna och arbetet fortsätter, men samhället och dess själ har upphört. I centrum befinner sig siaren Hias, som hemsöks av profetiska syner och varsel av civilisationens och tidens slut. Glasbrukets aristokratiske ägare tar till allt mer förtvivlade medel i sina försök att återskapa det värdefulla glaset, innan han ger upp och låter glasbruket gå under i en anlagd eldsvåda.
 Berättelsen är uppbyggd kring tre spår: ett slags anekdotiskt färgade folksagor om bygden och dess invånare, det förindustriella samhällets alkemiska förbund mellan människa och en plats specifika råvaror, samt en egenartat optimistisk kontemplation över människans möjliga pånyttfödelse bortom den människocentrerade världsordningens kollaps. 
 
-*Tema*
-
+*Tema*  
 Hjärta av Glas är inte en svanesång över glesbygd och fabriksdöd. Snarare är det en poetisk betraktelse av glasproduktionen som en transformativ relation mellan människa och natur, en alkemisk process där råmaterial såväl som individer ingår i en förening som procurerar någonting större än de sammantagna beståndsdelarna. Det rubinröda glaset och det lokala samhället är således båda två produkter som inte kan förstås enbart som den rationella summan av sina mätbara komponenter.
 Berättelsen är en undersökning av fenomenet produktion, förstått ur sina olika aspekter som ekonomi, poesi och gemenskap. Hur hänger produktion och politik ihop, och hur samverkar de i skapandet av samhälle och gemenskap? Inte som partipolitiska preferenser eller åsikter, utan egentligen? Hur blir vi till som konkreta, politiska varelser i en tid där vi alla blivit alienerade från samhällets produktion, och bara lever vidare som konsumenter? Och vad är förutsättningen för att vi ska vara förmögna att skapa gemensamma visioner av framtiden som någonting annat än en fortsättning på det som redan finns?
 
-*Process*
-
+*Process*  
 Produktionen skapas under ett flertal arbetsperioder under oktober 2021 till augusti 2022, och har premiär i början av september 2022. Vi tänker oss ett arbete där vi kommunicerar med ett antal platser genom hela processen, där vi förhoppningsvis kan lära känna Gävleborg genom vårt sökande efter de lokala berättelserna. Föreställningen kommer spelas på ett flertal olika platser i länet.
 Dramatiseringen bygger på en nyskriven text där filmmanuskriptets struktur och fabel möter research-material som vi samlar in under ett antal residensperioder på olika platser i länet. Under arbetsrförloppetbjuder vi kontinuerligt in till samtal där vi tänker kring arbetet tillsammans med människor från platserna vi arbetar på, och en serie av enkla och informella presentationer av arbetet. 
