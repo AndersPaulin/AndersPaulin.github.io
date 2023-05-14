@@ -31,8 +31,8 @@
 [Mephisto, Deutsches Schauspielhaus](/mephisto.md)    
 [A Midsummernight's Dream](/midsommar.md)  
 [Kasimir und Karoline](/kasimir.md)  
-Cleansed  
-Faust  
+[Cleansed](/cleansed.md)  
+[Faust](/faust.md)  
 Kamraterna  
 
 ## TEXTS
