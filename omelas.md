@@ -1,3 +1,6 @@
+**UTSIKT ÖVER OMELAS**  
+**i samarbete med Emma Palmkvist och Ulf Rönnerstrand**  
+
 *Utsikt över Omelas* är ett interdisciplinärt konstprojekt som arbetar med vår förmåga att föreställa oss ett utopiskt samhälle, och utopins inneboende paradox: den vision om en ny verklighet som bara kan existera bortom verkligheten. Genom att låta poetisk text, dramaturgi, animation, arkitektur och speldesign mötas vill skapa ett rum som aktiverar kollektiva fantasier om samhällssystem som fungerar på helt andra premisser än våra nuvarande. 
 
 Arbetet utgår ifrån *”The ones who walk away from Omelas”* av Ursula K Le Guin, en novell om det utopiska samhället Omelas, och den etiska ambivalens som vilar latent i varje förverkligad utopi. Novellens kompetens är att generera fantasi; läsaren aktiveras att föreställa sig samhället genom vad texten antyder om hur olika delar av stadsstaten Omelas fungerar. Utifrån den logiken vill vi utveckla fantasin om Omelas till en större värld, där de olika samhällsområden som skisseras i texten växer till möjligheten att föreställa sig ett alternativt samhällssystem. 
