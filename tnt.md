@@ -1,5 +1,5 @@
 **TEMPORARY NATIONAL THEATRE**  
-**Royal Danish Theatre 2009-2010**. 
+**Royal Danish Theatre 2009-2010**  
 *in co-operation with Tor Lindstrand*  
 
 ![](/tnt8.jpg)  
