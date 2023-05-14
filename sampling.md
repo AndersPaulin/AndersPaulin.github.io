@@ -99,26 +99,26 @@ But I was there.*
 
 Jag trodde verkligen ironin dog med 90-talet. Hur är det möjligt att den har kommit tillbaka, starkare än någonsin? Jag skulle önska att det bara var jag som börjar bli gammal. Att jag helt enkelt inte längre orkar hålla mig uppdaterad och därför inte kan avläsa det system av signaler och koder som utgör semio-kapitalistiska universum. Delvis är det naturligtvis helt sant. Jag är född för över ett halvt sekel sedan, uppväxt med den första månlandningen, Tore Skogman och kalla kriget. Jag förstår inte memes, på samma sätt som jag inte förstår kodade gemenskapers humor.
 
-* * *
+- - -
 
-I'm losing my edge.
-I'm losing my edge.
-I can hear the footsteps every night on the decks.
-But I was there.
-I was there in 1974 at the first Suicide practices in a loft in New York City.
-I was working on the organ sounds with much patience.
-I was there when Captain Beefheart started up his first band.
-I told him, "Don't do it that way. You'll never make a dime."
-I was there.
-I was the first guy playing Daft Punk to the rock kids.
-I played it at CBGB's.
-Everybody thought I was crazy.
-We all know.
-I was there.
-I was there.
-I've never been wrong.
+*I'm losing my edge.  
+I'm losing my edge.  
+I can hear the footsteps every night on the decks.  
+But I was there.  
+I was there in 1974 at the first Suicide practices in a loft in New York City.  
+I was working on the organ sounds with much patience.  
+I was there when Captain Beefheart started up his first band.  
+I told him, "Don't do it that way. You'll never make a dime."  
+I was there.  
+I was the first guy playing Daft Punk to the rock kids.  
+I played it at CBGB's.  
+Everybody thought I was crazy.  
+We all know.  
+I was there.  
+I was there.  
+I've never been wrong.*
 
-* * *
+- - -
 
 Det är som att jag plötsligt förlorat känslan av att kunna erfara min plats i världen. Eller, inte plötsligt, snarare som ett organ som långsamt dragit sig tillbaka. Jag tror inte direkt att organet har atrofierat; mera som att det inte längre hittar ekot från de sonar signaler som skickats ut; som att den samtida omvärlden iklätt sig ett högteknologiskt ytskikt av så fragmenterade vinklar att radarn inte ger något utslag; får ekot att fastna i en feedback loop av självreflekterande speglingar tills allt blir en sinuston så jämn att radarn helt enkelt får spader och går i viloläge. Jag känner mig själv oändligt mycket bättre än när jag var yngre, men jag vet inte vem jag är i världen längre. Den här texten ska nog läsas utifrån den premissen.
 Jag önskar att jag vore förmögen att utan smak av det förlorade privilegiets bitterhet kunde, inte som en utifrånbetraktelse men inifrån, ge ord åt den sorg jag känner inför den samtida scenkonstens oändliga cirkulerande av nuet. En aldrig sinande ström av speglingar av det som för närvarande existerar – hur ska någonting någonsin kunna bli någonting annat – alla bilder av det-som-finns som i sin självförhärligande självhävdelse med skoningslös effektivitet täpper igen varje spricka där det-som-inte-finns skulle kunna sippra in.
@@ -127,73 +127,73 @@ Den indignationens färgblinda (kanske även tondöva) brist på nyanser som pr�
 
 Jag vet heller inte när den blev så dominerande; denna evighetsström av samtida teaterföreställningar som viger hela sin estetiska praktik åt att pyssla ihop regnbågsfärgade pärlhalsband av samtidsmarkörer; fyllda av sjöjunfrur, röda fanor, Madonna videos och moves från Beyonce; alltför medvetna för att ägna sig åt alltför för iögonfallande direktappropriering av minoritetsgruppers estetiska koder utformar de sina föreställningar som barndomens kojor, gömslen byggda av ihopplockade enhörningar och Britney Spears frisyrer.
 
-Är det här möjligen det som Deleuze och Guattari syftar på i frasen “a world of pure intensities where all forms come undone”? Jag hoppas verkligen inte det... Nej, jag varken kan eller vill tro att så är fallet. De föreställningar jag tänker på är alldeles för upptagna av att bli bekräftade av sin publik för att fungera i den logiken. Writing like a rat digging its burrow (...) finding his own point of underdevelopment, his own patois, his own third world, his own desert. Med den målsättningen, och dess medföljande kvalitetskriterier, kan den ängsliga igenkänningens skratt som är så symptomatisk för relationen mellan scen och salong i så mycket av samtida scenkonst helt enkelt inte vara en rimlig respons.
+Är det här möjligen det som Deleuze och Guattari syftar på i frasen “*a world of pure intensities where all forms come undone*”? Jag hoppas verkligen inte det... Nej, jag varken kan eller vill tro att så är fallet. De föreställningar jag tänker på är alldeles för upptagna av att bli bekräftade av sin publik för att fungera i den logiken. *Writing like a rat digging its burrow (...) finding his own point of underdevelopment, his own patois, his own third world, his own desert.* Med den målsättningen, och dess medföljande kvalitetskriterier, kan den ängsliga igenkänningens skratt som är så symptomatisk för relationen mellan scen och salong i så mycket av samtida scenkonst helt enkelt inte vara en rimlig respons.
 
-* * *
+- - -
 
-I used to work in the record store.
-I had everything before anyone.
-I was there in the Paradise Garage DJ booth with Larry Levan.
-I was there in Jamaica during the great sound clashes.
-I woke up naked on the beach in Ibiza in 1988.
+*I used to work in the record store.  
+I had everything before anyone.  
+I was there in the Paradise Garage DJ booth with Larry Levan.  
+I was there in Jamaica during the great sound clashes.  
+I woke up naked on the beach in Ibiza in 1988.*
 
-But I'm losing my edge to better-looking people with better ideas and more talent.
-And they're actually really, really nice
+*But I'm losing my edge to better-looking people with better ideas and more talent.  
+And they're actually really, really nice*
 
-* * *
+- - -
 
 Det skulle förstås också ligga nära till hands att tolka min text som en nostalgisk längtan efter en svunnen tid med originalberättelser och autonoma författarskap. Inget skulle vara mig mer främmande. Och även om jag menar att varje praktik byggd på sampling alltid aktiverar frågan om appropriering, så är min främsta farhåga i relation till samtidens förhållande till lånad estetik inte moralisk/etisk, utan praktisk/politisk.
 
-I böckerna Capitalist Realism och Ghosts of My Life gör Mark Fisher ett antal diagnoser av vår samtid som ett tillstånd av depression, som för mig är både igenkännbara och skrämmande relevanta. I sitt avvisande av poesi och fiktion, kombinerat med en fixering vid självspeglande bilder av vår nutid, töms världen successivt på visioner av att framtiden skulle kunna vara någonting annat än en fortsättning på de omständigheter som existerar just nu.  Med en entusiasm som kanske bäst förstås enligt det kollektiva medberoendets logik som sammanfattas i Laurent Berlants briljanta begrepp cruel optimism, klamrar vi oss fast vid resterna av en priviligierad världsordning som redan har gått förlorad.
+I böckerna *Capitalist Realism* och *Ghosts of My Life* gör Mark Fisher ett antal diagnoser av vår samtid som ett tillstånd av depression, som för mig är både igenkännbara och skrämmande relevanta. I sitt avvisande av poesi och fiktion, kombinerat med en fixering vid självspeglande bilder av vår nutid, töms världen successivt på visioner av att framtiden skulle kunna vara någonting annat än en fortsättning på de omständigheter som existerar just nu.  Med en entusiasm som kanske bäst förstås enligt det kollektiva medberoendets logik som sammanfattas i Laurent Berlants briljanta begrepp cruel optimism, klamrar vi oss fast vid resterna av en priviligierad världsordning som redan har gått förlorad.
 
 Jag tror detta kan och ska förstås i relation till sorg och sörjande som ett av vår tids centrala tabun. Att sörja är att släppa taget, och enär minnet bara är möjligt i relation till det som inte längre finns förvandlar vi obönhörligt timme för timme, sampling för sampling, vårt kollektiva minne till nostalgi. Denna förlust av själva förlusten förlamar oss och lämnar oss oförmögna att frammana bilder av framtiden som någonting annat än nuets fortplantning i all evighet. Att ge plats för sorg vore att ge plats för hoppet om en annorlunda framtid. Alldenstund denna framtids tillblivelse förutsätter att vi ger upp vårt privilegium, avbryts varje process, varje spår, varje rytm som riskerar att ange en riktning ut ur det närvarandes öken.
 
-* * *
+- - -
 
-I'm losing my edge.
-I heard you have a compilation of every good song ever done by anybody.
-Every great song by the Beach Boys. All the underground hits.
-All the Modern Lovers tracks. I heard you have a vinyl of every Niagra record on German import.
-I heard that you have a white label of every seminal Detroit techno hit - 1985, '86, '87.
-I heard that you have a CD compilation of every good '60s cut and another box set from the '70s.
-I hear you're buying a synthesizer and an arpeggiator and are throwing your computer out the window because you want to make something real. You want to make a Yaz record.
-I hear that you and your band have sold your guitars and bought turntables.
-I hear that you and your band have sold your turntables and bought guitars.
-I hear everybody that you know is more relevant than everybody that I know.
+*I'm losing my edge.  
+I heard you have a compilation of every good song ever done by anybody.  
+Every great song by the Beach Boys. All the underground hits.  
+All the Modern Lovers tracks. I heard you have a vinyl of every Niagra record on German import.  
+I heard that you have a white label of every seminal Detroit techno hit - 1985, '86, '87.  
+I heard that you have a CD compilation of every good '60s cut and another box set from the '70s.  
+I hear you're buying a synthesizer and an arpeggiator and are throwing your computer out the window because you want to make something real. You want to make a Yaz record.  
+I hear that you and your band have sold your guitars and bought turntables.  
+I hear that you and your band have sold your turntables and bought guitars.  
+I hear everybody that you know is more relevant than everybody that I know.*
 
-* * *
+- - -
 
-Så hur hantera detta omedvetna medvetande? Likt vinylskivans repa, som får musiken att fastna i en evig loop, är vår subjektivitet fångad i ett olösligt dilemma. Insikten om det egna subjektets privilegium utgör ett av den urbana kultur-klassens tydligaste markörer, och ity vårt konstnärliga arbete är beroende av de materiella och sociala resurser som tillhörigheten till privilegiet ger tillgång till, blir paradoxalt nog uttalandet av denna insikt samtidigt den trollformel som återskapar den identitet vi försöker undfly. Väl medvetna om vår position som fångar på insidan av den självgenererande teckenbaserade uppmärksamhets-ekonomin, en ideologiskt färgblind kapitalism som inte äger någon utsida och där allt som räknas är vad som kan framställa sig självt - “What is good appears. What appears is good” som Guy Debord säger, och oboy skulle han ha farit ut i oändliga paroxysmer om han vetat i vilken grad vi, hans framtid, skulle komma att överträffa hans samtid - så tvingas vår tids scenkonst, likt Homeros' Odysseus som nödgas styra sin farkost mot antingen Schylla eller Charybdis, välja mellan att förhålla sig till världen med antingen ironi eller cynism. (Här räknar jag inte in den stora mittfåran av traditionell teater, som löser dilemmat med en naivitet som på sitt sätt hade kunnat vara vacker om det inte återigen vore för ekvatonen naivitet + privilegium = ignorans.) Det är mot bakgrund av detta jag tror man ska förstå den tidvattenvåg av metateater som mot all god smak och bättre vetande fortsatt sköljer över våra teaterscener, och som även om den utger sig för att vara teaterkonstens räddning i själva verket är en ohöljd hyllning till dess impotens.
+Så hur hantera detta omedvetna medvetande? Likt vinylskivans repa, som får musiken att fastna i en evig loop, är vår subjektivitet fångad i ett olösligt dilemma. Insikten om det egna subjektets privilegium utgör ett av den urbana kultur-klassens tydligaste markörer, och ity vårt konstnärliga arbete är beroende av de materiella och sociala resurser som tillhörigheten till privilegiet ger tillgång till, blir paradoxalt nog uttalandet av denna insikt samtidigt den trollformel som återskapar den identitet vi försöker undfly. Väl medvetna om vår position som fångar på insidan av den självgenererande teckenbaserade uppmärksamhets-ekonomin, en ideologiskt färgblind kapitalism som inte äger någon utsida och där allt som räknas är vad som kan framställa sig självt - *“What is good appears. What appears is good”* som Guy Debord säger, och oboy skulle han ha farit ut i oändliga paroxysmer om han vetat i vilken grad vi, hans framtid, skulle komma att överträffa hans samtid - så tvingas vår tids scenkonst, likt Homeros' Odysseus som nödgas styra sin farkost mot antingen Schylla eller Charybdis, välja mellan att förhålla sig till världen med antingen ironi eller cynism. (Här räknar jag inte in den stora mittfåran av traditionell teater, som löser dilemmat med en naivitet som på sitt sätt hade kunnat vara vacker om det inte återigen vore för ekvatonen naivitet + privilegium = ignorans.) Det är mot bakgrund av detta jag tror man ska förstå den tidvattenvåg av metateater som mot all god smak och bättre vetande fortsatt sköljer över våra teaterscener, och som även om den utger sig för att vara teaterkonstens räddning i själva verket är en ohöljd hyllning till dess impotens.
 
 Det finns naturligtvis också möjligheten att hänge sig åt ett slags radikal nihilism, antingen munter eller nattsvart (och kanske en del av det som för mig framstår som ironi egentligen vill uppfattas på den premissen). Jag vet inte om det är en hoppfull eller deprimerande tanke att hoppet skulle ligga i att omfamna det egna subjektets varande och verkande som tömt på mening.
 .
-* * *
+- - -
 
-But have you seen my records? This Heat, Pere Ubu, Outsiders, Nation of Ulysses, Mars, The Trojans, The Black Dice, Todd Terry, the Germs, Section 25, Althea and Donna, Sexual Harrassment, a-ha, Pere Ubu, Dorothy Ashby, PIL, the Fania All-Stars, the Bar-Kays, the Human League, the Normal, Lou Reed, Scott Walker, Monks, Niagra,
-Joy Division, Lower 48, the Association, Sun Ra,
-Scientists, Royal Trux, 10cc,
+*But have you seen my records? This Heat, Pere Ubu, Outsiders, Nation of Ulysses, Mars, The Trojans, The Black Dice, Todd Terry, the Germs, Section 25, Althea and Donna, Sexual Harrassment, a-ha, Pere Ubu, Dorothy Ashby, PIL, the Fania All-Stars, the Bar-Kays, the Human League, the Normal, Lou Reed, Scott Walker, Monks, Niagra,  
+Joy Division, Lower 48, the Association, Sun Ra,  
+Scientists, Royal Trux, 10cc,*
 
-Eric B. and Rakim, Index, Basic Channel, Soulsonic Force ("just hit me"!), Juan Atkins, David Axelrod, Electric Prunes, Gil! Scott! Heron!, the Slits, Faust, Mantronix, Pharaoh Sanders and the Fire Engines, the Swans, the Soft Cell, the Sonics, the Sonics, the Sonics, the Sonics.
+*Eric B. and Rakim, Index, Basic Channel, Soulsonic Force ("just hit me"!), Juan Atkins, David Axelrod, Electric Prunes, Gil! Scott! Heron!, the Slits, Faust, Mantronix, Pharaoh Sanders and the Fire Engines, the Swans, the Soft Cell, the Sonics, the Sonics, the Sonics, the Sonics.*
 
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
+*You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.*
 
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
+*You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.*
 
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
-You don't know what you really want.
+*You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.  
+You don't know what you really want.*
 
-* * *
+- - -
 
-Citerad sångtext: I'm Losing My Edge från gruppen LCD Soundsystems debutalbum, 2005
+Citerad sångtext: *I'm Losing My Edge* från gruppen LCD Soundsystems debutalbum, 2005
 https://www.youtube.com/watch?v=gIk4oFkorbc)
