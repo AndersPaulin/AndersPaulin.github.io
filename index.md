@@ -1,6 +1,6 @@
 # ANDERS PAULIN  
 
-![](/neithersmall.jpg)
+![](/bebissmall.jpg)
 
 ## TODAY
 [Hjärta av Glas](/hjarta.md)  
