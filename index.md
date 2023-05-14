@@ -37,7 +37,7 @@
 
 ## TEXTS
 [Kulturhuset - A Hauntology](/juvelentxt.md)  
-Art In The Age Of Sampling Technology  
+[Art In The Age Of Sampling Technology](/sampling.md)  
 [Tankar 22 December 2021](/tankar.md)  
 Innocence & Privilege  
 Solar Eclipse  
