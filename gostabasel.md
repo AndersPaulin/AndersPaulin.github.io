@@ -1,7 +1,7 @@
 **GÖSTA BERLING'S SAGA**  
 **Lagerlöf/Paulin**  
 *Stadttheater Basel, 2007*  
-![](/basel1.jpg)
+![](/baselsmall.jpg)
 
 The production was based on the novel by Swedish nobelprize winner Selma Lagerlöf. In the book, the richest woman of Värmland is letting 12 bohemians live, drink, eat and party for free at her mansion Ekeby, so that "in Värmland there will be one place where people think about other things than work and the soil". For one year, the 12 bohemians take control of Ekeby, in an attempt to turn it into an autonomous Utopia. After the year has passed, the original owner comes back to throw them out.
 
