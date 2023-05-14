@@ -1,6 +1,7 @@
 **NEITHER YOU NOR ME**
+![](/neither2.jpg)
 
-For 25 years Anders M and Anders P have been working together, one as actor and the other as director. In Neither You Nor Me they enter a journey through the narratives of Sophocle´s Antigone, Eschenbach´s Parzival and Melville´s Bartleby.
+For 25 years Anders M and Anders P have been working together, one as actor and the other as director. In Neither You Nor Me they enter a journey through the narratives of Sophocle´s *Antigone*, Eschenbach´s *Parzival* and Melville´s *Bartleby*.
 
 The first material presents a number of dialectic positions – man/woman, king/citizen, law/religion – and the second is an invitation to follow the movement from singularity to subjectivity. The third story investigates the potential of doing nothing at all. Together they form the foundation for a serie of examinations of the stage as a venue for, and encounters between, equal subjectivities; an arena for production of difference rather than identity, where participants and audience together can build imaginations of the infinite amount of potential existences, lives and destinies that isn't our own.
 
@@ -24,4 +25,5 @@ Caféteatret, Copenhagen
 Skogen, Gothenburg
 The Danish National School of Performing Arts
 The Swedish Biennial of Performing Arts
+
 
