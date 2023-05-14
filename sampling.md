@@ -24,7 +24,7 @@ Efter föreställningen ett artist talk. Vänlig men inte så påläst moderator
 
 Här kanske jag borde upprepa att denna föreställningen, som jag tre år efter att jag såg den fortfarande ägnar både min och er uppmärksamhet, i sig är en fullständig bagatell. Konstobjektet såväl som avsändarens subjekt är så helgjutet förankrade och inbäddade i den allra mest lagompriviligierade mittfåran av en generisk västeuropeisk danskanon att jag ju egentligen glömde bort den samtidigt som jag såg den. Men kanske är just detta själva kärnan i varför den dröjt sig kvar – dess totala och genomförda narcissism, den fullständiga avsaknaden av subjektivitet bortom ett omättligt begär efter att få sin egen spegelbild affirmerad och beundrad. Och, i nästan ännu högre grad, den välmående ignoransens absolut självklara rätt med vilken föreställningen kapitaliserar på lånade estetiska uttryck, formulerade och utvecklade som specifika strategier i specifika subjektiverings processer, för att skänka liv åt det privligierade subjektets substanslöshet.
 
-¶ ¶ ¶
+– – –
 
 *“Breakbeat science, as I see it, is when Grandmaster Flash and DJ Kool Herc and all those guys isolate the breakbeat, when they literally go to the moment of a record when the melody and the harmony drops away and where the beats and the drum and the bass moves forward (...) They more or less grabbed a kind op potential beat which was always there, by severing it from the funk engine, by materializing it as actually a portion of vinyl that could be repeated.”*  
 Motion Capture, Kodwo Eshun
