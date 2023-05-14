@@ -1,6 +1,7 @@
 **TEMPORARY NATIONAL THEATRE**  
-**Royal Danish Theatre 2009-2010**
+**Royal Danish Theatre 2009-2010**. 
 *in co-operation with Tor Lindstrand*  
+
 ![](/tnt8.jpg)  
 
 The main objective of the TNT project was to examine different potentials for a cultural arena; understood as a public space where Citizen and Institution meet to define collective ideas of identity, ethics and social imagination.
