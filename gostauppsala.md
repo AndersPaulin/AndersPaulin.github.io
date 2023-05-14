@@ -5,9 +5,9 @@
 
 *Theatre that you neither want nor have the tools to conclude with a judgement. Rather just respond, with: Yes, please!*  
 (...)  
-*Selma Lagerlöf's epic story does not die because you explode it to pieces. Quite the contrary, as Phoenix it ascends again. How is not possible to understand from the seemingly randomized dramaturgy. It has to do with the approach: the absolute dedication, and the fact that the very unwillingness to sentimentalize becomes a irrecusable responsibility.*  
+*Selma Lagerlöf's epic story does not die because you explode it to pieces. Quite the contrary, as Phoenix it ascends again. "How" is not possible to understand from the seemingly randomized dramaturgy. It has to do with the approach: the absolute dedication, and the fact that the very unwillingness to sentimentalize becomes an irrecusable responsibility.*  
 (...)  
-*When the female ticket collector comes on stage and significantly non-theatrically reads a paragraph from the novel at the same time as an infants crying is heard from a small box, on which the actors are desperately kicking and treading. At that moment an original drama emerges around which the tumultous story settles down.*  
+*When the female ticket collector comes on stage and significantly non-theatrically reads a paragraph from the novel at the same time as an infants crying is heard from a small box, on which the actors are desperately kicking and treading. At that moment an original drama emerges, around which the tumultous story settles down.*  
 Dagens Nyheter
 
 I think of the stage as an arena whose most basic function is to give us devices to encounter ”the Other in its Otherness”; to meet the Other, not in an attempt to understand – i.e. incorporate with my own subject – but in an attempt to remain in the movement towards an understanding, where the encounter exists only as long as the movement continues, and where the objective of the work consequently becomes to find strategies to avoid reaching the goal of the movement – the Understandment.
