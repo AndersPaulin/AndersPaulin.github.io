@@ -2,16 +2,16 @@
 
 ![](/neithersmall.jpg)
 
-## TODAY
+## PRESENT
 [Hjärta av Glas](/hjarta.md)  
 [Tibrosamlingen](/tibro.md)    
 
-## TOMORROW
+## PLANS
 [Melancholy Of Resistance](/melancholy.md)  
 [Utsikt Över Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
-## YESTERDAY
+## PAST
 [Three White Soldiers - The Exhibition](threewhitesoldiers.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
