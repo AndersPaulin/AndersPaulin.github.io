@@ -1,7 +1,7 @@
 **GÖSTA BERLINGS SAGA**  
 *Lagerlöf/Paulin*  
 **Uppsala Stadsteater, 2008**
-![](/gostauppsala.jpg)
+![](/gostauppsala4.jpg)
 
 *Theatre that you neither want nor have the tools to conclude with a judgement. Rather just respond, with: Yes, please!*  
 (...)  
@@ -16,7 +16,7 @@ The scenic creativity that emanates from non-identity thus becomes an unexpected
 
 The skills of our craft thus should be founded on finding the movements that escapes the understanding; only there we and the audience become free to, simultaneously solitary and in community, discover the glimpses of understanding that make up our own subjects.
 
-![](/gostauppsala1.jpg)
+![](/gostauppsala1.jpeg)
 
 ![](/gostauppsala2.jpg)
 
