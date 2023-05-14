@@ -16,7 +16,3 @@ Gustaf Gründgens ends as legendary director of Deutsches Schauspielhaus in Hamb
 ![](/mephisto3.jpg)
 
 ![](/mephisto4.jpg)
-
-![](/mephisto5.jpg)
-
-![](/mephisto6.jpg)
