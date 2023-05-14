@@ -28,9 +28,9 @@
 [Le Mépris](/mepris.md)  
 [Gösta Berlings Saga/Basel](/basel.md)  
 [Gösta Berlings Saga/Uppsala](/gostauppsala.md)  
-Mephisto, Deutsches Schauspielhaus  
-A Midsummernight's Dream  
-Kasimir und Karoline  
+[Mephisto, Deutsches Schauspielhaus](/mephisto.md)    
+[A Midsummernight's Dream](/midsommar.md)  
+[Kasimir und Karoline](/kasimir.md)  
 Cleansed  
 Faust  
 Kamraterna  
