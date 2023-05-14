@@ -15,7 +15,7 @@ Theresa Benér, Teaterkritik
 The project was a staged re-make of Le Mèpris, Godard´s filmatization of the novel by Alberto Moravia.  
 By sharing the task of the film - how to tell the Odyssey? what artistic representation do we have available to imagine that what begins where humanity ends? - the project was conceived as a discourse on the possibility of different media to build functioning encounters with the Other.
 
-![](/mepris2.jpg)
+![](/mepris2.jpeg)
 
 ![](/mepris3.jpg)
 
