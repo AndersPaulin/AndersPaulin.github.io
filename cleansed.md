@@ -1,6 +1,7 @@
 **CLEANSED**  
 by Sarah Kane  
-**Det Nationale Scene, 2002**
+**Det Nationale Scene, 2002**  
+![](/cleansed1.jpg)
 
 *Contains everything you emotionally could possibly encounter...*  
 *A unique and strong expression of existence.*  
@@ -15,3 +16,14 @@ It was a desperation in this performance I won't forget.
 A longing that I recognized as my own. Afterwards I was left  
 with questions I still haven't found the answers to.*  
 dramtatik.no
+
+![](/cleansed2.jpg)
+
+![](/cleansed3.jpg)
+
+![](/cleansed4.jpg)
+
+![](/cleansed5.jpg)
+
+![](/cleansed6.jpg)
+
