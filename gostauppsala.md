@@ -1,9 +1,12 @@
 **GÖSTA BERLINGS SAGA**  
 *Lagerlöf/Paulin*  
 **Uppsala Stadsteater, 2008**
+![](/gostauppsala.jpg)
 
-*Theatre that you neither want nor have the tools to conclude with a judgement. Rather just respond, with: Yes, please!(...)*  
-*Selma Lagerlöf's epic story does not die because you explode it to pieces. Quite the contrary, as Phoenix it ascends again. How is not possible to understand from the seemingly randomized dramaturgy. It has to do with the approach: the absolute dedication, and the fact that the very unwillingness to sentimentalize becomes a irrecusable responsibility.(...)*
+*Theatre that you neither want nor have the tools to conclude with a judgement. Rather just respond, with: Yes, please!*  
+(...)  
+*Selma Lagerlöf's epic story does not die because you explode it to pieces. Quite the contrary, as Phoenix it ascends again. How is not possible to understand from the seemingly randomized dramaturgy. It has to do with the approach: the absolute dedication, and the fact that the very unwillingness to sentimentalize becomes a irrecusable responsibility.*  
+(...)
 *When the female ticket collector comes on stage and significantly non-theatrically reads a paragraph from the novel at the same time as an infants crying is heard from a small box, on which the actors are desperately kicking and treading. At that moment an original drama emerges around which the tumultous story settles down.*  
 Dagens Nyheter
 
@@ -13,3 +16,12 @@ The scenic creativity that emanates from non-identity thus becomes an unexpected
 
 The skills of our craft thus should be founded on finding the movements that escapes the understanding; only there we and the audience become free to, simultaneously solitary and in community, discover the glimpses of understanding that make up our own subjects.
 
+![](/gostauppsala1.jpg)
+
+![](/gostauppsala2.jpg)
+
+![](/gostauppsala3.jpg)
+
+![](/gostauppsala4.jpg)
+
+![](/gostauppsala5.jpg)
