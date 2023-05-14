@@ -11,7 +11,7 @@ Klassekampen
 It was the feeling of entering a new world, a world where everything was possible.  
 Here water was flushing from hoses, the walls were sprayed and painted,  
 and peoples heads were forced under water until they nearly drowned.  
-It was a desperation in this performance I won't forget. 
+It was a desperation in this performance I won't forget.  
 A longing that I recognized as my own. Afterwards I was left  
 with questions I still haven't found the answers to.*  
 dramtatik.no
