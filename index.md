@@ -7,6 +7,7 @@
 [Tibrosamlingen](/tibro.md)    
 
 ## TOMORROW
+[Melancholy Of Resistance](/melancholy.md)
 [Juvelen](/Juvelen.md)  
 
 ## YESTERDAY
