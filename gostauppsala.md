@@ -1,7 +1,7 @@
 **GÖSTA BERLINGS SAGA**  
 *Lagerlöf/Paulin*  
 **Uppsala Stadsteater, 2008**  
-![](/gostauppsala4.jpg)
+![](/gostauppsalasmall.jpg)
 
 *Theatre that you neither want nor have the tools to conclude with a judgement. Rather just respond, with: Yes, please!*  
 (...)  
