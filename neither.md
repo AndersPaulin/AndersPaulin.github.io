@@ -28,10 +28,6 @@ The Swedish Biennial of Performing Arts
 
 ![](/neither2.jpg)
 
-![](/neither3.png)
-
-![](/neither4.png)
-
 ![](/neither5.png)
 
 ![](/neither6.png)
