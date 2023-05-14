@@ -1,5 +1,6 @@
 **VERTICAL GARDENING JALAZOUN 2010-2011**  
 *in co-operation with Sara Gebran*
+![](/vertical5.jpg)  
 
 In the village of Dura, close to Birzeit town and Jalazoun Camp, lies a valley with good planting soil and a natural water supply. Here, in a site that must be somewhat of a dream in a country defined by constant difficulties of sustainability and water shortage, we are establishing Vertical Gardening – The Carpet: a platform combining the art of leisure time and entertainment with workshops and collective activities. One might ask ”what is quality time in a social art project?” By establishing a space where collective work meets reflection, we aim to investigate the possibility of developing a practical example for the idea of the Commons; a heterotopic space, neither private nor public and thus defined by and given to the individuals using it.
 
@@ -22,3 +23,12 @@ Vertical Gardening/The Carpet was a project by: Sara Gebran, Anders Paulin, Bash
 
 With Support from:
 Nordic Culture Point, Danish Center for Cultural Development (DCCD), Olof Palme Minnesfond, The Swedish Arts Grants Committee and The Danish Arts Foundation.
+
+![](/vertical1.jpg)  
+
+![](/vertical2.jpg)  
+
+![](/vertical3.jpg)  
+
+![](/vertical4.jpg)  
+
