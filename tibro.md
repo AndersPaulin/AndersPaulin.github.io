@@ -24,17 +24,4 @@ Tack till Tibro Museum, Martin Toresson, Leif Ahnland, Nya Hotellet,
 Västergötlands Museum och alla vi träffat i Tibro.
 
 
-![](/skovde1.jpg) 
-
-![](/skovde2.jpg) 
-
-![](/skovde3.jpg) 
-
-![](/skovde4.jpg) 
-
-![](/skovde5.jpg) 
-
-![](/skovde6.jpg) 
-
-![](/skovde7.jpg) 
-
+![](/tibro2.jpg) 
