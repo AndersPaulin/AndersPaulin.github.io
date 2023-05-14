@@ -36,7 +36,7 @@
 [Kamraterna](/kamraterna.md)  
 
 ## TEXTS
-Kulturhuset - A Hauntology  
+[Kulturhuset - A Hauntology](/juvelentxt.md)  
 Art In The Age Of Sampling Technology  
 [Tankar 22 December 2021](/tankar.md)  
 Innocence & Privilege  
