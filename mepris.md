@@ -1,6 +1,7 @@
 **LE MÉPRIS**  
 **Godard/Homer/Paulin**  
-Camp X, Copenhagen 2009
+Camp X, Copenhagen 2009  
+![](/mepris1.jpg)
 
 *The venue looks like a cinema, only without a film. The inner home cinema gets started. It is a sampling of stories, but told a decisively peaceful manner—solemn, but pleasurable—that submerges its audience in a position of serene listening. To be allowed to listen in peace: that's something you don't experience everyday in Danish theater.  
 There is in "Le Mépris" a critique of our most basic ways of thinking and making stories today. And thus also a newborn culture struggle, that wants to remind us that there also exists a world that is bigger than our oh so thoroughly advertised life.  
@@ -13,3 +14,11 @@ Theresa Benér, Teaterkritik
 
 The project was a staged re-make of Le Mèpris, Godard´s filmatization of the novel by Alberto Moravia.  
 By sharing the task of the film - how to tell the Odyssey? what artistic representation do we have available to imagine that what begins where humanity ends? - the project was conceived as a discourse on the possibility of different media to build functioning encounters with the Other.
+
+![](/mepris2.jpg)
+
+![](/mepris3.jpg)
+
+![](/mepris4.jpg)
+
+
