@@ -1,6 +1,5 @@
-**NEITHER YOU NOR ME**
-
-![](/neither2.jpg)
+**NEITHER YOU NOR ME**. 
+![](/neither1.jpg)
 
 For 25 years Anders M and Anders P have been working together, one as actor and the other as director. In Neither You Nor Me they enter a journey through the narratives of Sophocle´s *Antigone*, Eschenbach´s *Parzival* and Melville´s *Bartleby*.
 
@@ -15,6 +14,17 @@ The staged body here, rather than being the representation of a certain identity
 The objective of the project is to examine an updated toolbox for theatre. By merging methods and strategies from different art disciplines we aim to develope alternatives to traditional methods based on identity and mimesis, focusing on listening rather than understanding, and thus more suited to meet the needs of a postnational world.
 
 *Neither You Nor Me* was created & performed by Anders Paulin and Anders Mossling.
+
+![](/neither2.jpg)
+
+![](/neither3.jpg)
+
+![](/neither4.jpg)
+
+![](/neither5.jpg)
+
+
+
 
 Produced with support from Nordic Culture Point
 
