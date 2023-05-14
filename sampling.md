@@ -3,7 +3,7 @@
 Den här texten är inte den text den vill vara. Den försöker beskriva fenomen i världen, utan att själv riktigt ta plats i världen. Den stannar kvar i en slags halvexistens, blir tvekande kvar i skuggvärlden innan en egen tillblivelse, fast i ett varande utan egen livskraft livnär den sig på den värld den otillräckligt försöker namnge i brist på förmåga att själv ta del i den. Den text den vill vara skulle syresätta sina egna lungor, lämna betraktelserna bakom sig. Den skulle vara sitt eget objekt i världen istället för att beskriva den.
 Om den här texten, som mot bättre vetande och utan besittning av egna vitala organ ändå är i färd med att bli skriven, trots allt har ett ärende, bland alla andra ärenden som ögonblick för ögonblick, timme för timme, dag ut och dag in oavbrutet utkämpar en lika heroisk som meningslös strid om vår – alla mediala landvinningar till trots – neurologiskt begränsade uppmärksamhet, så är det för att jag, dess subjekt, befinner mig i en position där jag inte längre har någonting som helst att säga.
 
-#
+- - -
 
 *Yeah, I'm losing my edge.  
 I'm losing my edge.  
@@ -12,7 +12,7 @@ I'm losing my edge.
 I'm losing my edge to the kids from France and from London.  
 But I was there.*  
 
-#
+- - -
 
 Om jag hade förmågan skulle jag vilja kunna skriva liv åt minnet av kvällen på en scen för samtida dans och koreografi, i en mellanstor europeisk huvudstad, präglad av estetisk natur, ekonomiskt välstånd och den kreativa klassens ängsliga trendkänslighet. Tidpunkten är en diskursiv trend-cykel tidigare än det nu som ännu ligger i framtiden, fortfarande i början av den generation som först några år senare ska komma att mogna och ta plats som dominerande tendens och kvalitetskriterium i det urbana scenkonstfältet. På scenen just ikväll: tre dansare cirkulerar rörelser enligt modulbaserat schema, estetiserade 70-tals anakronismer, disco Jane Fonda och vogue, glitter guld silver. De estetiserade kropparna rör sig med oengerad precision, en paradox av likgiltighet och disciplinerad fåfänga, speglar sig i varandras estetiserade självspegling.
 
@@ -29,7 +29,7 @@ Här kanske jag borde upprepa att denna föreställningen, som jag tre år efter
 *“Breakbeat science, as I see it, is when Grandmaster Flash and DJ Kool Herc and all those guys isolate the breakbeat, when they literally go to the moment of a record when the melody and the harmony drops away and where the beats and the drum and the bass moves forward (...) They more or less grabbed a kind op potential beat which was always there, by severing it from the funk engine, by materializing it as actually a portion of vinyl that could be repeated.”*  
 Motion Capture, Kodwo Eshun
 
-¶ ¶ ¶
+- - -
 
 Jag önskar jag kunde referera till boken More Brilliant than the Sun med samma kongeniala syntax som dess författare Kodwo Eshun själv besitter; samma semiotiskt pregnanta coolness, samma självklart referentiellt förankrade subjektivitet.
 
@@ -39,15 +39,16 @@ Tvetydigheten i samplingens förhållande till kontext och subjektivitet fascine
 
 Om vi läser subjektivitet med Jacques Ranciere är subjektivering en process som uppstår i och med skapandet av ett tidigare inte existerande samhälleligt subjekt. Ranciere exemplifierar med bl.a. proletariatet, en kategori och identitet som behöver formuleras för att den industrialiserade modernitetens nya klass ska kunna förstå och få inflytande över sina livsvillkor. Subjektivering är på så sätt en process som per definition och med nödvändighet utspelar sig i en kontext av emancipation av en existens som i relation till det existerande bara kan förstås som frånvaro - “Political subjectivization is the enactment of equality – or the handling of a wrong – by people who are together to the extent that they are between”
 
-* * *
+- - -
 
-200 years into the future, the Data Thief is told a story. If you can find the crossroads, any crossroads this crossroads, if you can make an archeological dig into this crossroads, you'll find fragments, techno fossils. And if you can put those elements, those fragments together, you'll find a code. Crack that code, and you'll have the keys to your future. You got one clue, and it's a phrase: “Mothership Connection”.
+*200 years into the future, the Data Thief is told a story. If you can find the crossroads, any crossroads this crossroads, if you can make an archeological dig into this crossroads, you'll find fragments, techno fossils. And if you can put those elements, those fragments together, you'll find a code. Crack that code, and you'll have the keys to your future. You got one clue, and it's a phrase: “Mothership Connection”.*  
 The Last Angel of History, Black Audio Film Collective
 
-In 1995, the London-based group Black Audio Film Collective released The Last Angel of History, their essayfilm which remains the most elaborate exposition on the convergence of ideas that is Afrofuturism. Through the persona of a time-traveling nomadic figure known as the Data Thief, The Last Angel of History created a network of links between music, space, futurology, and diaspora. African sonic processes are here reconceived as telecommunication, as the distributed components of a code to a black secret technology that is the key to diasporic future.
+
+*In 1995, the London-based group Black Audio Film Collective released The Last Angel of History, their essayfilm which remains the most elaborate exposition on the convergence of ideas that is Afrofuturism. Through the persona of a time-traveling nomadic figure known as the Data Thief, The Last Angel of History created a network of links between music, space, futurology, and diaspora. African sonic processes are here reconceived as telecommunication, as the distributed components of a code to a black secret technology that is the key to diasporic future.*
 Further Considerations on Afrofuturism, Kodwo Eshun
 
-* * *
+- - -
 
 Jag vill framför allt kunna skriva om skillnaden mellan sampling, citat och lån; mellan det aktiva re-komponerandet av ett referens-system – som har ett medvetet förhållande till den kontext som aktualiseras och re-territorialiseras genom ett inlyssnande subjektets kunskap om, och kärlek till, dess estetiska uttryck – och det kapitaliserande av estetiska uttrycks potential som sker när det införlivas med den majoritetskulturens estetiska subjektivitet som utgör det vi kallar mainstream.
 
@@ -55,46 +56,46 @@ Skillnaden blir uppenbar i Detroit techno; i hur genren skapar en spekulativ öp
 
 Vad är det som händer när Derrick May, Juan Atkins och Underground Resistance samplar europeiska syntheseizers; väljer att inte förankra sitt konstnärliga subjekt i en historisk gospel tradition med rötter i den afrikanska kontinten utan i en spekulativ sonic fiction där förebilderna är Depeche Mode, och Gary Numan? Det samplade fragmentet, ljudet som autonom materialitet snarare än melodi, är en referentiell paradox. Å ena sidan ren potential, en free agent lösryckt från sin kontext, en deterritorialiserat klang eller puls redo att återuppstå, å andra sidan bärare av hela system av referenser och kontextualitet på granulär nivå. Samplingen som subjektivering eller kapitalisering kan i det perspektivet läsas i kontexten av det som Gilles Deleuze och Felix Guattari beskriver som deterritorialisering och reterritorialisering.
 
-I essän Kafka – Towards a Minor Literature i Kafka – Towards a Minor Literature formulerar Deleuze och Guattari ett antal tankefigurer kring begreppet “minor literature” En liten eller mindre litteratur är här inte en litteratur skrivet på minoritetsspråk, utan litteratur skriven från en minoritetsposition inom en majoritetskultur. Konstnärliga subjekt som formulerar sig från en minoritetsposition inom en majoritetskultur kommer i kraft av sin egen subjektivitet alltid vara potentiellt politiska, oavsett hur individuella deras iaktagelser eller berättelser är. För det subjekt som däremot verkar från en majoritetsposition kommer enligt omvänd logik den sociala och/eller politiska kontexten alltid fungera uteslutande som normativ miljö – det som med majoritetens hela självklarhet brukar kallas för verklighet.
+I essän *Kafka – Towards a Minor Literature i Kafka – Towards a Minor Literature* formulerar Deleuze och Guattari ett antal tankefigurer kring begreppet “minor literature” En liten eller mindre litteratur är här inte en litteratur skrivet på minoritetsspråk, utan litteratur skriven från en minoritetsposition inom en majoritetskultur. Konstnärliga subjekt som formulerar sig från en minoritetsposition inom en majoritetskultur kommer i kraft av sin egen subjektivitet alltid vara potentiellt politiska, oavsett hur individuella deras iaktagelser eller berättelser är. För det subjekt som däremot verkar från en majoritetsposition kommer enligt omvänd logik den sociala och/eller politiska kontexten alltid fungera uteslutande som normativ miljö – det som med majoritetens hela självklarhet brukar kallas för verklighet.
 
-En central tråd i essän är relationen mellan signifier och makt som utspelas och återskapas i språket, och där möjligheten till radikala förskjutningar av positioner erbjuds i det ögonblick röst och tal lösgör sig från de lingvistiska strukturer och hierarkier som upprätthåller maktrelationerna. Så länge Gregor Samsas språk överenstämmer med de personer som förtrycker honom – fadern och överordnade – så affirmerar han den identitet och position de tillskriver honom. Hans förvandling till kackerlacka blir hos Deleuze och Guattari därför inte en metafor för förtryck - “metaphors are one of the things that make me despair of literature (Kafka, Diaries 1921) – utan en konkret flyktlinje; när rösten som kommer ut ur Gregor Samsas mun inte längre skapar mening i hans förtryckares öron är han inte längre åtkomlig för deras förtryck. Språkets de-terrorialisering, från ord till ljud, från mening till läte – “a world of pure intensities, where all forms come undone... to the benefit of an unformed matter of deterritorialized flux, of nonsignifying signs. Kafka's animals correspond to new levels, zones of liberated intensities where contents free themselves from their forms as well as from their expression.”
+En central tråd i essän är relationen mellan signifier och makt som utspelas och återskapas i språket, och där möjligheten till radikala förskjutningar av positioner erbjuds i det ögonblick röst och tal lösgör sig från de lingvistiska strukturer och hierarkier som upprätthåller maktrelationerna. Så länge Gregor Samsas språk överenstämmer med de personer som förtrycker honom – fadern och överordnade – så affirmerar han den identitet och position de tillskriver honom. Hans förvandling till kackerlacka blir hos Deleuze och Guattari därför inte en metafor för förtryck - *“metaphors are one of the things that make me despair of literature* (Kafka, Diaries 1921) – utan en konkret flyktlinje; när rösten som kommer ut ur Gregor Samsas mun inte längre skapar mening i hans förtryckares öron är han inte längre åtkomlig för deras förtryck. Språkets de-terrorialisering, från ord till ljud, från mening till läte – *“a world of pure intensities, where all forms come undone... to the benefit of an unformed matter of deterritorialized flux, of nonsignifying signs. Kafka's animals correspond to new levels, zones of liberated intensities where contents free themselves from their forms as well as from their expression.”*
 
-Deleuze och Guattaris idéer om relationen mellan det radikala djurblivandet och språkets transformering till ljud som “sonorous material devoted to its own abolition - deterrorialized musical sound “ finner en uppenbar parallell i Kodwo Eshuns beskrivning av samplingens logik i Motion Capture: “Scratching is like a transformation sequence, like the audio version of the film The Thing maybe, or a werewolf movie, where you see the human transformed into a werewolf, and just before the person becomes werewolf you suddenly get a glimpse of the human, then it flashes away again. That’s kind of what the scratching does. It’s this unstable mix of the voice and the vinyl. Scratching means being captured by tiny moments of time.It is like finding the universe in a grain of sound. The world becomes literally granular”
+Deleuze och Guattaris idéer om relationen mellan det radikala djurblivandet och språkets transformering till ljud som “sonorous material devoted to its own abolition - deterrorialized musical sound “ finner en uppenbar parallell i Kodwo Eshuns beskrivning av samplingens logik i Motion Capture: *“Scratching is like a transformation sequence, like the audio version of the film The Thing maybe, or a werewolf movie, where you see the human transformed into a werewolf, and just before the person becomes werewolf you suddenly get a glimpse of the human, then it flashes away again. That’s kind of what the scratching does. It’s this unstable mix of the voice and the vinyl. Scratching means being captured by tiny moments of time.It is like finding the universe in a grain of sound. The world becomes literally granular”*
 
-* * *
+- - -
 
 Om flyktlinjer och subjektivering är logiken bakom samplingens potential i en minoritetskontext är kanske appropriering den funktion som bäst beskriver den re-territorialisering som ofelbart infinner sig när aktörer inom en majoritetskultur lånar en minoritetsgrupps estetiska koder och teckensystem för att höja sitt eget värde i ett mainstreamfält. Fenomenet uppstår inte nödvändigtvis som ett resultat av ont uppsåt, utan ofta genom den ignorans som så lätt frodas i privilegiets blinda fläck.
 
-I artikeln “All Play an No Work: How Moby's bestselling album damaged electronic music” för online magasinet FACT skriver Ryan Diduck om den nordamerikanska artisten Mobys användande av samplingar från Alan Lomax arkiv med blues inspelningar på sin monumentalt framgångsrika skiva Play: “The proverbial elephant in the room here is that all of the above electronica acts were white, while the vast majority of music they sampled was sourced from the African diaspora. The plunderphonic ethos of discovery, which fueled this musical genre, grew from essentially colonialist and racist histories, where “discovery” was shorthand for white artists finding, representing, and too often recontextualizing black musicians for white audiences.”
+I artikeln “All Play an No Work: How Moby's bestselling album damaged electronic music” för online magasinet FACT skriver Ryan Diduck om den nordamerikanska artisten Mobys användande av samplingar från Alan Lomax arkiv med blues inspelningar på sin monumentalt framgångsrika skiva Play: *“The proverbial elephant in the room here is that all of the above electronica acts were white, while the vast majority of music they sampled was sourced from the African diaspora. The plunderphonic ethos of discovery, which fueled this musical genre, grew from essentially colonialist and racist histories, where “discovery” was shorthand for white artists finding, representing, and too often recontextualizing black musicians for white audiences.”*
 
 Enligt samma majoritetens hemmablindhet kanske man måste förstå den annars så trendkänsliga norska elektronika musikern Lindstrøms välförtjänt kritiserade slip of the tongue när han reducerar den erfarenhet som ryms i den afro-amerikanska musikkanonens centralverk till ett titel-pun i “Swing Low, Sweet LFO”.
 
-En mer komplex, på samma gång problematisk och intressant, aspekt på kopplingen mellan sampling och appropriering är den franske dokumentärfilmaren Jean Rouchs film Le Maîtres Fous från 1955. Filmen, ofta placerad i genren etnofiction (bara namnet pekar på klustret av komplikationer), följer hur den religiösa sekten Hauka i sina ritualer approprierar den forna brittiska kolonialmaktens maktfigurer – officerare, polischefer, borgmästare – för att få tillgång till kolonialmaktens superkrafter. Under filmens 28 minuter speglas och maskeras minoritets- och majoritetspositioner i och genom varandra i en oavbruten omförhandling av subjektivitet som får maskeringar och identiteter att centrifugeras genom en mimetisk partikelaccelerator.
+En mer komplex, på samma gång problematisk och intressant, aspekt på kopplingen mellan sampling och appropriering är den franske dokumentärfilmaren Jean Rouchs film *Le Maîtres Fous* från 1955. Filmen, ofta placerad i genren etnofiction (bara namnet pekar på klustret av komplikationer), följer hur den religiösa sekten Hauka i sina ritualer approprierar den forna brittiska kolonialmaktens maktfigurer – officerare, polischefer, borgmästare – för att få tillgång till kolonialmaktens superkrafter. Under filmens 28 minuter speglas och maskeras minoritets- och majoritetspositioner i och genom varandra i en oavbruten omförhandling av subjektivitet som får maskeringar och identiteter att centrifugeras genom en mimetisk partikelaccelerator.
 
 Förstå mig rätt nu: Jag gör definitivt inte anspråk på något moraliskt övertag (åtminstone inte i den här frågan), det vore liksom en strukturell omöjlighet från min position; som 56-årig manlig teaterregissör har jag full förståelse för att landskapet är svårnavigerat. Privilegiet som horisont är problematiskt så tillvida att det är absolut; det känns inte vid min ideologiska intention och överröstar ofelbart min aldrig så etiska avsikt; att åtnjuta majoritetspositionens varma beskydd spärrar samtidigt vägen till det naiva perspektivet genom att obönhörligt transformera min hävdade oskuld till ignorans.
 
-Så hur överhuvudtaget tala från en kulturellt och socio-politiskt priviligierad position? Står valet mellan två kategorier av kapitulation: antingen tala och därigenom låta min röst återskapa den ordning jag önskar destabiliserad, eller för evigt tystna? Möjligen att en öppning finns i det Deleuze och Guattari beskriver som “the possibility of setting up a minor practice of major language from within”: Writing like a dog digging a hole, a rat diging its burrow. And to do that, finding his own point of underdevelopment, his own patois, his own third world, his own desert.
+Så hur överhuvudtaget tala från en kulturellt och socio-politiskt priviligierad position? Står valet mellan två kategorier av kapitulation: antingen tala och därigenom låta min röst återskapa den ordning jag önskar destabiliserad, eller för evigt tystna? Möjligen att en öppning finns i det Deleuze och Guattari beskriver som *“the possibility of setting up a minor practice of major language from within”: Writing like a dog digging a hole, a rat diging its burrow. And to do that, finding his own point of underdevelopment, his own patois, his own third world, his own desert.*
 
 Det första tecknet på att en sådan praktiks framgång är att min röst slutar skapa mening inom ramen för majoritetskulturens kvalitetskriterier. Att lyckas skulle därmed bli liktydigt med att skriva mig ut ur det privilegiets position som fått mitt subjekt att tystna.
 
-* * *
+- - -
 
-I was there in 1968.
-I was there at the first Can show in Cologne.
-I'm losing my edge.
-I'm losing my edge to the kids whose footsteps I hear when they get on the decks.
-I'm losing my edge to the Internet seekers who can tell me every member of every good group from 1962 to 1978.
-I'm losing my edge.
+*I was there in 1968.  
+I was there at the first Can show in Cologne.  
+I'm losing my edge.  
+I'm losing my edge to the kids whose footsteps I hear when they get on the decks.  
+I'm losing my edge to the Internet seekers who can tell me every member of every good group from 1962 to 1978.  
+I'm losing my edge.*
 
-To all the kids in Tokyo and Berlin.
-I'm losing my edge to the art-school Brooklynites in little jackets and borrowed nostalgia for the unremembered eighties.
+*To all the kids in Tokyo and Berlin.  
+I'm losing my edge to the art-school Brooklynites in little jackets and borrowed nostalgia for the unremembered eighties.*
 
-But I'm losing my edge.
-I'm losing my edge, but I was there.
-I was there.
-But I was there.
+*But I'm losing my edge.  
+I'm losing my edge, but I was there.  
+I was there.  
+But I was there.*
 
-* * *
+- - -
 
 Jag trodde verkligen ironin dog med 90-talet. Hur är det möjligt att den har kommit tillbaka, starkare än någonsin? Jag skulle önska att det bara var jag som börjar bli gammal. Att jag helt enkelt inte längre orkar hålla mig uppdaterad och därför inte kan avläsa det system av signaler och koder som utgör semio-kapitalistiska universum. Delvis är det naturligtvis helt sant. Jag är född för över ett halvt sekel sedan, uppväxt med den första månlandningen, Tore Skogman och kalla kriget. Jag förstår inte memes, på samma sätt som jag inte förstår kodade gemenskapers humor.
 
