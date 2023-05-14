@@ -3,7 +3,7 @@
 Den här texten är inte den text den vill vara. Den försöker beskriva fenomen i världen, utan att själv riktigt ta plats i världen. Den stannar kvar i en slags halvexistens, blir tvekande kvar i skuggvärlden innan en egen tillblivelse, fast i ett varande utan egen livskraft livnär den sig på den värld den otillräckligt försöker namnge i brist på förmåga att själv ta del i den. Den text den vill vara skulle syresätta sina egna lungor, lämna betraktelserna bakom sig. Den skulle vara sitt eget objekt i världen istället för att beskriva den.
 Om den här texten, som mot bättre vetande och utan besittning av egna vitala organ ändå är i färd med att bli skriven, trots allt har ett ärende, bland alla andra ärenden som ögonblick för ögonblick, timme för timme, dag ut och dag in oavbrutet utkämpar en lika heroisk som meningslös strid om vår – alla mediala landvinningar till trots – neurologiskt begränsade uppmärksamhet, så är det för att jag, dess subjekt, befinner mig i en position där jag inte längre har någonting som helst att säga.
 
-- - -
+– – –
 
 *Yeah, I'm losing my edge.  
 I'm losing my edge.  
@@ -12,7 +12,7 @@ I'm losing my edge.
 I'm losing my edge to the kids from France and from London.  
 But I was there.*  
 
-- - -
+– – –
 
 Om jag hade förmågan skulle jag vilja kunna skriva liv åt minnet av kvällen på en scen för samtida dans och koreografi, i en mellanstor europeisk huvudstad, präglad av estetisk natur, ekonomiskt välstånd och den kreativa klassens ängsliga trendkänslighet. Tidpunkten är en diskursiv trend-cykel tidigare än det nu som ännu ligger i framtiden, fortfarande i början av den generation som först några år senare ska komma att mogna och ta plats som dominerande tendens och kvalitetskriterium i det urbana scenkonstfältet. På scenen just ikväll: tre dansare cirkulerar rörelser enligt modulbaserat schema, estetiserade 70-tals anakronismer, disco Jane Fonda och vogue, glitter guld silver. De estetiserade kropparna rör sig med oengerad precision, en paradox av likgiltighet och disciplinerad fåfänga, speglar sig i varandras estetiserade självspegling.
 
@@ -24,12 +24,12 @@ Efter föreställningen ett artist talk. Vänlig men inte så påläst moderator
 
 Här kanske jag borde upprepa att denna föreställningen, som jag tre år efter att jag såg den fortfarande ägnar både min och er uppmärksamhet, i sig är en fullständig bagatell. Konstobjektet såväl som avsändarens subjekt är så helgjutet förankrade och inbäddade i den allra mest lagompriviligierade mittfåran av en generisk västeuropeisk danskanon att jag ju egentligen glömde bort den samtidigt som jag såg den. Men kanske är just detta själva kärnan i varför den dröjt sig kvar – dess totala och genomförda narcissism, den fullständiga avsaknaden av subjektivitet bortom ett omättligt begär efter att få sin egen spegelbild affirmerad och beundrad. Och, i nästan ännu högre grad, den välmående ignoransens absolut självklara rätt med vilken föreställningen kapitaliserar på lånade estetiska uttryck, formulerade och utvecklade som specifika strategier i specifika subjektiverings processer, för att skänka liv åt det privligierade subjektets substanslöshet.
 
-– – –
+– – –
 
 *“Breakbeat science, as I see it, is when Grandmaster Flash and DJ Kool Herc and all those guys isolate the breakbeat, when they literally go to the moment of a record when the melody and the harmony drops away and where the beats and the drum and the bass moves forward (...) They more or less grabbed a kind op potential beat which was always there, by severing it from the funk engine, by materializing it as actually a portion of vinyl that could be repeated.”*  
 Motion Capture, Kodwo Eshun
 
-- - -
+– – –
 
 Jag önskar jag kunde referera till boken More Brilliant than the Sun med samma kongeniala syntax som dess författare Kodwo Eshun själv besitter; samma semiotiskt pregnanta coolness, samma självklart referentiellt förankrade subjektivitet.
 
@@ -39,7 +39,7 @@ Tvetydigheten i samplingens förhållande till kontext och subjektivitet fascine
 
 Om vi läser subjektivitet med Jacques Ranciere är subjektivering en process som uppstår i och med skapandet av ett tidigare inte existerande samhälleligt subjekt. Ranciere exemplifierar med bl.a. proletariatet, en kategori och identitet som behöver formuleras för att den industrialiserade modernitetens nya klass ska kunna förstå och få inflytande över sina livsvillkor. Subjektivering är på så sätt en process som per definition och med nödvändighet utspelar sig i en kontext av emancipation av en existens som i relation till det existerande bara kan förstås som frånvaro - “Political subjectivization is the enactment of equality – or the handling of a wrong – by people who are together to the extent that they are between”
 
-- - -
+– – –
 
 *200 years into the future, the Data Thief is told a story. If you can find the crossroads, any crossroads this crossroads, if you can make an archeological dig into this crossroads, you'll find fragments, techno fossils. And if you can put those elements, those fragments together, you'll find a code. Crack that code, and you'll have the keys to your future. You got one clue, and it's a phrase: “Mothership Connection”.*  
 The Last Angel of History, Black Audio Film Collective
@@ -48,7 +48,7 @@ The Last Angel of History, Black Audio Film Collective
 *In 1995, the London-based group Black Audio Film Collective released The Last Angel of History, their essayfilm which remains the most elaborate exposition on the convergence of ideas that is Afrofuturism. Through the persona of a time-traveling nomadic figure known as the Data Thief, The Last Angel of History created a network of links between music, space, futurology, and diaspora. African sonic processes are here reconceived as telecommunication, as the distributed components of a code to a black secret technology that is the key to diasporic future.*
 Further Considerations on Afrofuturism, Kodwo Eshun
 
-- - -
+– – –
 
 Jag vill framför allt kunna skriva om skillnaden mellan sampling, citat och lån; mellan det aktiva re-komponerandet av ett referens-system – som har ett medvetet förhållande till den kontext som aktualiseras och re-territorialiseras genom ett inlyssnande subjektets kunskap om, och kärlek till, dess estetiska uttryck – och det kapitaliserande av estetiska uttrycks potential som sker när det införlivas med den majoritetskulturens estetiska subjektivitet som utgör det vi kallar mainstream.
 
@@ -62,7 +62,7 @@ En central tråd i essän är relationen mellan signifier och makt som utspelas 
 
 Deleuze och Guattaris idéer om relationen mellan det radikala djurblivandet och språkets transformering till ljud som “sonorous material devoted to its own abolition - deterrorialized musical sound “ finner en uppenbar parallell i Kodwo Eshuns beskrivning av samplingens logik i Motion Capture: *“Scratching is like a transformation sequence, like the audio version of the film The Thing maybe, or a werewolf movie, where you see the human transformed into a werewolf, and just before the person becomes werewolf you suddenly get a glimpse of the human, then it flashes away again. That’s kind of what the scratching does. It’s this unstable mix of the voice and the vinyl. Scratching means being captured by tiny moments of time.It is like finding the universe in a grain of sound. The world becomes literally granular”*
 
-- - -
+– – –
 
 Om flyktlinjer och subjektivering är logiken bakom samplingens potential i en minoritetskontext är kanske appropriering den funktion som bäst beskriver den re-territorialisering som ofelbart infinner sig när aktörer inom en majoritetskultur lånar en minoritetsgrupps estetiska koder och teckensystem för att höja sitt eget värde i ett mainstreamfält. Fenomenet uppstår inte nödvändigtvis som ett resultat av ont uppsåt, utan ofta genom den ignorans som så lätt frodas i privilegiets blinda fläck.
 
@@ -78,7 +78,7 @@ Så hur överhuvudtaget tala från en kulturellt och socio-politiskt priviligier
 
 Det första tecknet på att en sådan praktiks framgång är att min röst slutar skapa mening inom ramen för majoritetskulturens kvalitetskriterier. Att lyckas skulle därmed bli liktydigt med att skriva mig ut ur det privilegiets position som fått mitt subjekt att tystna.
 
-- - -
+– – –
 
 *I was there in 1968.  
 I was there at the first Can show in Cologne.  
@@ -95,11 +95,11 @@ I'm losing my edge, but I was there.
 I was there.  
 But I was there.*
 
-- - -
+– – –
 
 Jag trodde verkligen ironin dog med 90-talet. Hur är det möjligt att den har kommit tillbaka, starkare än någonsin? Jag skulle önska att det bara var jag som börjar bli gammal. Att jag helt enkelt inte längre orkar hålla mig uppdaterad och därför inte kan avläsa det system av signaler och koder som utgör semio-kapitalistiska universum. Delvis är det naturligtvis helt sant. Jag är född för över ett halvt sekel sedan, uppväxt med den första månlandningen, Tore Skogman och kalla kriget. Jag förstår inte memes, på samma sätt som jag inte förstår kodade gemenskapers humor.
 
-- - -
+– – –
 
 *I'm losing my edge.  
 I'm losing my edge.  
@@ -118,7 +118,7 @@ I was there.
 I was there.  
 I've never been wrong.*
 
-- - -
+– – –
 
 Det är som att jag plötsligt förlorat känslan av att kunna erfara min plats i världen. Eller, inte plötsligt, snarare som ett organ som långsamt dragit sig tillbaka. Jag tror inte direkt att organet har atrofierat; mera som att det inte längre hittar ekot från de sonar signaler som skickats ut; som att den samtida omvärlden iklätt sig ett högteknologiskt ytskikt av så fragmenterade vinklar att radarn inte ger något utslag; får ekot att fastna i en feedback loop av självreflekterande speglingar tills allt blir en sinuston så jämn att radarn helt enkelt får spader och går i viloläge. Jag känner mig själv oändligt mycket bättre än när jag var yngre, men jag vet inte vem jag är i världen längre. Den här texten ska nog läsas utifrån den premissen.
 Jag önskar att jag vore förmögen att utan smak av det förlorade privilegiets bitterhet kunde, inte som en utifrånbetraktelse men inifrån, ge ord åt den sorg jag känner inför den samtida scenkonstens oändliga cirkulerande av nuet. En aldrig sinande ström av speglingar av det som för närvarande existerar – hur ska någonting någonsin kunna bli någonting annat – alla bilder av det-som-finns som i sin självförhärligande självhävdelse med skoningslös effektivitet täpper igen varje spricka där det-som-inte-finns skulle kunna sippra in.
@@ -129,7 +129,7 @@ Jag vet heller inte när den blev så dominerande; denna evighetsström av samti
 
 Är det här möjligen det som Deleuze och Guattari syftar på i frasen “*a world of pure intensities where all forms come undone*”? Jag hoppas verkligen inte det... Nej, jag varken kan eller vill tro att så är fallet. De föreställningar jag tänker på är alldeles för upptagna av att bli bekräftade av sin publik för att fungera i den logiken. *Writing like a rat digging its burrow (...) finding his own point of underdevelopment, his own patois, his own third world, his own desert.* Med den målsättningen, och dess medföljande kvalitetskriterier, kan den ängsliga igenkänningens skratt som är så symptomatisk för relationen mellan scen och salong i så mycket av samtida scenkonst helt enkelt inte vara en rimlig respons.
 
-- - -
+– – –
 
 *I used to work in the record store.  
 I had everything before anyone.  
@@ -140,7 +140,7 @@ I woke up naked on the beach in Ibiza in 1988.*
 *But I'm losing my edge to better-looking people with better ideas and more talent.  
 And they're actually really, really nice*
 
-- - -
+– – –
 
 Det skulle förstås också ligga nära till hands att tolka min text som en nostalgisk längtan efter en svunnen tid med originalberättelser och autonoma författarskap. Inget skulle vara mig mer främmande. Och även om jag menar att varje praktik byggd på sampling alltid aktiverar frågan om appropriering, så är min främsta farhåga i relation till samtidens förhållande till lånad estetik inte moralisk/etisk, utan praktisk/politisk.
 
@@ -148,7 +148,7 @@ I böckerna *Capitalist Realism* och *Ghosts of My Life* gör Mark Fisher ett an
 
 Jag tror detta kan och ska förstås i relation till sorg och sörjande som ett av vår tids centrala tabun. Att sörja är att släppa taget, och enär minnet bara är möjligt i relation till det som inte längre finns förvandlar vi obönhörligt timme för timme, sampling för sampling, vårt kollektiva minne till nostalgi. Denna förlust av själva förlusten förlamar oss och lämnar oss oförmögna att frammana bilder av framtiden som någonting annat än nuets fortplantning i all evighet. Att ge plats för sorg vore att ge plats för hoppet om en annorlunda framtid. Alldenstund denna framtids tillblivelse förutsätter att vi ger upp vårt privilegium, avbryts varje process, varje spår, varje rytm som riskerar att ange en riktning ut ur det närvarandes öken.
 
-- - -
+– – –
 
 *I'm losing my edge.  
 I heard you have a compilation of every good song ever done by anybody.  
@@ -161,13 +161,13 @@ I hear that you and your band have sold your guitars and bought turntables.
 I hear that you and your band have sold your turntables and bought guitars.  
 I hear everybody that you know is more relevant than everybody that I know.*
 
-- - -
+– – –
 
 Så hur hantera detta omedvetna medvetande? Likt vinylskivans repa, som får musiken att fastna i en evig loop, är vår subjektivitet fångad i ett olösligt dilemma. Insikten om det egna subjektets privilegium utgör ett av den urbana kultur-klassens tydligaste markörer, och ity vårt konstnärliga arbete är beroende av de materiella och sociala resurser som tillhörigheten till privilegiet ger tillgång till, blir paradoxalt nog uttalandet av denna insikt samtidigt den trollformel som återskapar den identitet vi försöker undfly. Väl medvetna om vår position som fångar på insidan av den självgenererande teckenbaserade uppmärksamhets-ekonomin, en ideologiskt färgblind kapitalism som inte äger någon utsida och där allt som räknas är vad som kan framställa sig självt - *“What is good appears. What appears is good”* som Guy Debord säger, och oboy skulle han ha farit ut i oändliga paroxysmer om han vetat i vilken grad vi, hans framtid, skulle komma att överträffa hans samtid - så tvingas vår tids scenkonst, likt Homeros' Odysseus som nödgas styra sin farkost mot antingen Schylla eller Charybdis, välja mellan att förhålla sig till världen med antingen ironi eller cynism. (Här räknar jag inte in den stora mittfåran av traditionell teater, som löser dilemmat med en naivitet som på sitt sätt hade kunnat vara vacker om det inte återigen vore för ekvatonen naivitet + privilegium = ignorans.) Det är mot bakgrund av detta jag tror man ska förstå den tidvattenvåg av metateater som mot all god smak och bättre vetande fortsatt sköljer över våra teaterscener, och som även om den utger sig för att vara teaterkonstens räddning i själva verket är en ohöljd hyllning till dess impotens.
 
 Det finns naturligtvis också möjligheten att hänge sig åt ett slags radikal nihilism, antingen munter eller nattsvart (och kanske en del av det som för mig framstår som ironi egentligen vill uppfattas på den premissen). Jag vet inte om det är en hoppfull eller deprimerande tanke att hoppet skulle ligga i att omfamna det egna subjektets varande och verkande som tömt på mening.
 .
-- - -
+– – –
 
 *But have you seen my records? This Heat, Pere Ubu, Outsiders, Nation of Ulysses, Mars, The Trojans, The Black Dice, Todd Terry, the Germs, Section 25, Althea and Donna, Sexual Harrassment, a-ha, Pere Ubu, Dorothy Ashby, PIL, the Fania All-Stars, the Bar-Kays, the Human League, the Normal, Lou Reed, Scott Walker, Monks, Niagra,  
 Joy Division, Lower 48, the Association, Sun Ra,  
@@ -193,7 +193,7 @@ You don't know what you really want.
 You don't know what you really want.  
 You don't know what you really want.*
 
-- - -
+– – –
 
 Citerad sångtext: *I'm Losing My Edge* från gruppen LCD Soundsystems debutalbum, 2005
 https://www.youtube.com/watch?v=gIk4oFkorbc)
