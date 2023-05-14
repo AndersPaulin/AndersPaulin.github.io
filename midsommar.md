@@ -1,7 +1,7 @@
 **A MIDSUMMERNIGHT'S DREAM**  
 *by Shakespeare*  
 **Royal Theatre, Copenhagen 2003**  
-![](/midsommarsmall.jpg)
+![](/midsommar2.jpg)
 
 
 Leaving the royal court of the royal theatre, the performance explored the performative aspects of letting go of privileges as a condition of autonomous subjectivity. Following the subjects in Shakespeare's play as they get lost in the forest, the performance gradually made a diasporic escape into the bars, hotels and hot dog stands of the urban landscape.
@@ -14,6 +14,6 @@ Selected to the German triennial festival Theater der Welt 2005.
 
 ![](/midsommar1.jpg)
 
-![](/midsommar2.tiff)
+![](/midsommarsmall.jpg)
 
 
