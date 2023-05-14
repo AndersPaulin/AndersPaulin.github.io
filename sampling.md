@@ -3,7 +3,7 @@
 Den här texten är inte den text den vill vara. Den försöker beskriva fenomen i världen, utan att själv riktigt ta plats i världen. Den stannar kvar i en slags halvexistens, blir tvekande kvar i skuggvärlden innan en egen tillblivelse, fast i ett varande utan egen livskraft livnär den sig på den värld den otillräckligt försöker namnge i brist på förmåga att själv ta del i den. Den text den vill vara skulle syresätta sina egna lungor, lämna betraktelserna bakom sig. Den skulle vara sitt eget objekt i världen istället för att beskriva den.
 Om den här texten, som mot bättre vetande och utan besittning av egna vitala organ ändå är i färd med att bli skriven, trots allt har ett ärende, bland alla andra ärenden som ögonblick för ögonblick, timme för timme, dag ut och dag in oavbrutet utkämpar en lika heroisk som meningslös strid om vår – alla mediala landvinningar till trots – neurologiskt begränsade uppmärksamhet, så är det för att jag, dess subjekt, befinner mig i en position där jag inte längre har någonting som helst att säga.
 
-*
+# # #
 
 *Yeah, I'm losing my edge.  
 I'm losing my edge.  
@@ -12,7 +12,7 @@ I'm losing my edge.
 I'm losing my edge to the kids from France and from London.  
 But I was there.*  
 
-*
+# # #
 
 Om jag hade förmågan skulle jag vilja kunna skriva liv åt minnet av kvällen på en scen för samtida dans och koreografi, i en mellanstor europeisk huvudstad, präglad av estetisk natur, ekonomiskt välstånd och den kreativa klassens ängsliga trendkänslighet. Tidpunkten är en diskursiv trend-cykel tidigare än det nu som ännu ligger i framtiden, fortfarande i början av den generation som först några år senare ska komma att mogna och ta plats som dominerande tendens och kvalitetskriterium i det urbana scenkonstfältet. På scenen just ikväll: tre dansare cirkulerar rörelser enligt modulbaserat schema, estetiserade 70-tals anakronismer, disco Jane Fonda och vogue, glitter guld silver. De estetiserade kropparna rör sig med oengerad precision, en paradox av likgiltighet och disciplinerad fåfänga, speglar sig i varandras estetiserade självspegling.
 
