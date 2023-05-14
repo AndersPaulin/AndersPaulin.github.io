@@ -22,9 +22,9 @@
 [Parzival](/parzival.md)  
 [Wild Duck](/villanden.md)  
 [KAFAK (FAKAK aka AKFAK)](/kafak.md)  
-Temporary National Theatre  
-Vertical Gardening Jalazoun  
-Neither You Nor Me  
+[Temporary National Theatre](/tnt.md)  
+[Vertical Gardening Jalazoun](/vertical.md)  
+[Neither You Nor Me](/neither.md)  
 Le Mépris  
 Gösta Berlings Saga/Basel  
 Gösta Berlings Saga/Uppsala  
