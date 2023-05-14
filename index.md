@@ -12,7 +12,7 @@
 [Juvelen](/Juvelen.md)  
 
 ## PAST
-[Three White Soldiers - The Exhibition](threewhitesoldiers.md)  
+[Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
 [PIM - Para Institutional Models](/pim.md)  
