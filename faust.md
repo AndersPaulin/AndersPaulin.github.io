@@ -8,7 +8,7 @@ crossroads, selling our soul, boredom of life in capitalist growth etc.
 
 What I however do remember is using seventeen different tracks  
 of Deep Purple, Led Zeppelin and Black Sabbath.  
-And borrowing the dogs head from a Daft Punk video. 
+And borrowing the dogs head from a Daft Punk video.  
 And an extensive use of a low cabaret-curtain.  
 And the slapstick moment when Faust and Mefisto hid in a  
 bathtub filled with foam when being caught breaking in at Gretchen's place.
