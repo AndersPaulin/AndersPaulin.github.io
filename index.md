@@ -8,6 +8,7 @@
 
 ## THINGS I WILL OR WOULD LIKE TO DO
 [Melancholy Of Resistance](/melancholy.md)  
+[Utsikt Över Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
 ## THINGS I'VE DONE
