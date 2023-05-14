@@ -6,8 +6,8 @@ So very long ago...
 Don't quite recall what the key thematics where, besides the obvious ones:  
 crossroads, selling our soul, celebration of hedonism paired with boredom of life in capitalist growth etc.
 
-What I however do remember is using seventeen different tracks  
-of Deep Purple, Led Zeppelin and Black Sabbath.  
+What I however do remember clearly is using seventeen different  
+tracks of Deep Purple, Led Zeppelin and Black Sabbath.  
 And borrowing the dogs head from a Daft Punk video.
 
 And an extensive use of a low cabaret-curtain.  
