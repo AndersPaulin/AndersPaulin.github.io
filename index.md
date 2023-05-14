@@ -6,12 +6,12 @@
 [Hjärta av Glas](/hjarta.md)  
 [Tibrosamlingen](/tibro.md)    
 
-## PLANS
+## SOME PLANS
 [Melancholy Of Resistance](/melancholy.md)  
 [Utsikt Över Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
-## PAST
+## SOME THINGS FROM THE PAST
 [Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
