@@ -33,8 +33,8 @@ see TNT/KAFAK (aka FAKAK akak AKFAK)
 
 ![](/tnt4.jpg)  
 
-![](/tnt5.jpg)
-
 ![](/tnt6.jpg)
 
 ![](/tnt7.jpg)  
+
+![](/tnt5.jpg)
