@@ -26,7 +26,7 @@
 [Vertical Gardening Jalazoun](/vertical.md)  
 [Neither You Nor Me](/neither.md)  
 [Le Mépris](/mepris.md)  
-[Gösta Berlings Saga/Basel](/basel.md)  
+[Gösta Berlings Saga/Basel](/gostabasel.md)  
 [Gösta Berlings Saga/Uppsala](/gostauppsala.md)  
 [Mephisto, Deutsches Schauspielhaus](/mephisto.md)    
 [A Midsummernight's Dream](/midsommar.md)  
