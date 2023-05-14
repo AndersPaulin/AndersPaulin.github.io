@@ -25,9 +25,9 @@
 [Temporary National Theatre](/tnt.md)  
 [Vertical Gardening Jalazoun](/vertical.md)  
 [Neither You Nor Me](/neither.md)  
-Le Mépris  
-Gösta Berlings Saga/Basel  
-Gösta Berlings Saga/Uppsala  
+[Le Mépris](/mepris.md)  
+[Gösta Berlings Saga/Basel](/basel.md)  
+[Gösta Berlings Saga/Uppsala(/gostauppsala.md)  
 Mephisto, Deutsches Schauspielhaus  
 A Midsummernight's Dream  
 Kasimir und Karoline  
