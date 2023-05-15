@@ -52,9 +52,9 @@
 ## OTHER TEXTS
 [The Thing](/thing.md)  
 [Against Interpretation](/sontag.md)  
-The Storyteller  
-The Language of Things  
-The Translator's Task  
+[The Storyteller](/storyteller.md)  
+[The Language of Things](/languagethings.md)  
+[The Translator's Task](/translator.md)  
 Listening  
 Spectres of Marx  
 Towards a Minor Literature  
