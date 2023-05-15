@@ -45,8 +45,8 @@
 [Similarity-As-Such](/similarity.md)  
 [The Shofar (and The Drop)](/shofar.md)  
 [Some Thoughts on Art, Education & Its Institutions](/arteducation.md)  
-Collapse of Fantasy  
-Speed and Gravity  
+[Collapse of Fantasy](/collapse.md)  
+[Speed and Gravity](/speed.md)  
 Skogen Tar Weld Till Skogen  
 
 ## OTHER TEXTS
