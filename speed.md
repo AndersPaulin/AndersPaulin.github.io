@@ -7,7 +7,7 @@ Hannah Arendt, *The Human Condition*
 *Paragraph 1*  
 We all know the dream. In a very generic vision of freedom you´re out running. When you jump over a fence or some other obstacle, instead of landing you suddenly keep levitating, up up and away, until you find yourself free floating in the air. The first sensation can be something similar to fear, a sudden and tingling panic of loss of control, that slowly gives way for a triumphant feeling of souvereignity and invincibility. I don´t have this dream very often anymore.
 
-*Paragraph 2*
+*Paragraph 2*  
 Contemporary economy is ideologically color-blind, it is simply totally indifferent to resistance. Its main propellant is difference. The difference between the yellow Nike of last month and the blue Asics of next week; the tiny glitches separating one category of identity from the other. Because in the logic of contemporary economics, every new category of identity means a new target group. Capitalism doesn´t care one bit about the objective or ideological agenda behind my projects; as long as they produce difference they fullfill their task as fuel making the wheels turn faster.
 
 *Paragraph 3*  
