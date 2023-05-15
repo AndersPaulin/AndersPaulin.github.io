@@ -44,7 +44,7 @@
 ["I" Am Not The Same As "Me"](/iamnotthesame.md)  
 [Similarity-As-Such](/similarity.md)  
 [The Shofar (and The Drop)](/shofar.md)  
-Some Thoughts on Art, Education & Its Institutions  
+[Some Thoughts on Art, Education & Its Institutions](/arteducation.md)  
 Collapse of Fantasy  
 Speed and Gravity  
 Skogen Tar Weld Till Skogen  
