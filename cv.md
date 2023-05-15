@@ -1,7 +1,7 @@
 Produktioner, regi och dramaturgi
 
-2022-23	Tibrosamlingen, Paulin/Forsman	Skogen, Gbg. Weld, Sthlm. Ottosonska, Tibro.
-2022-23	Hjärta av Glas, Palmkvist	Folkteatern i Gävleborg
+2022-23	Tibrosamlingen, Paulin/Forsman	Skogen, Gbg. Weld, Sthlm. Ottosonska, Tibro   
+2022-23	Hjärta av Glas, Palmkvist	Folkteatern i Gävleborg  
 2019	  Three White Soldiers (The Exhibition)	Skövde Konsthall, Ställbergs Gruva
 2018	  I See The Rocky Island Again, Schönberg/Paulin	Norwegian Theatre Academy, Fredrikstad
 2017	  Double Feature, Hölderlin/Mieville/Paulin/Cvejic	Nationaltheatret, Oslo
