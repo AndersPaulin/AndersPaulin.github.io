@@ -1,5 +1,5 @@
-Specters of Marx (excerpt)
-Jacques Derrida
+**Specters of Marx (excerpt)**
+*Jacques Derrida*
 
 If we now prepare ourselves to speak about ghost, about inheritance and generation, which is to say about certain others who are not present, not presently living, not here among us or within us or outside of us, then it is in the name of justice. In the name of justice where it is not yet, not yet there, where it is no longer, in the sense that it is no longer present.
 
