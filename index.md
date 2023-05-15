@@ -50,7 +50,7 @@
 [Skogen Tar Weld Till Skogen](/skogen.md)  
 
 ## OTHER TEXTS
-The Thing  
+[The Thing](/thing.md)  
 Against Interpretation  
 The Storyteller  
 The Language of Things  
