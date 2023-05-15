@@ -42,7 +42,7 @@
 [Innocence & Privilege](/innocence.md)  
 [Solar Eclipse](/solareclipse.md)  
 ["I" Am Not The Same As "Me"](/iamnotthesame.md)  
-Similarity-As-Such  
+[Similarity-As-Such](/similarity.md)  
 The Shofar (and The Drop)  
 Some Thoughts on Art, Education & Its Institutions  
 Collapse of Fantasy  
