@@ -51,7 +51,7 @@
 
 ## OTHER TEXTS
 [The Thing](/thing.md)  
-Against Interpretation  
+[Against Interpretation](/interpretation.md)  
 The Storyteller  
 The Language of Things  
 The Translator's Task  
