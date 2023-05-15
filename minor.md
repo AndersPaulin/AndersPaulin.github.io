@@ -1,5 +1,5 @@
-Towards a Minor Literature (excerpt)
-Deleuze/Guattari
+**Towards a Minor Literature (excerpt)**  
+*Deleuze/Guattari*
 
 A minor literature doesn’t come from a minor language; it is rather that which a minority constructs within a major language.
 
