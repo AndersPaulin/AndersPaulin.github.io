@@ -47,7 +47,7 @@
 [Some Thoughts on Art, Education & Its Institutions](/arteducation.md)  
 [Collapse of Fantasy](/collapse.md)  
 [Speed and Gravity](/speed.md)  
-Skogen Tar Weld Till Skogen  
+[Skogen Tar Weld Till Skogen](/skogen.md)  
 
 ## OTHER TEXTS
 The Thing  
