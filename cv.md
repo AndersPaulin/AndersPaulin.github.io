@@ -6,7 +6,7 @@
 2018	    *I See The Rocky Island Again*, Schönberg/Paulin	Norwegian Theatre Academy, Fredrikstad  
 2017	  *Double Feature*, Hölderlin/Mieville/Paulin/Cvejic	Nationaltheatret, Oslo  
 2017	  *Three White Soldiers III*, Paulin/Forsman	Skogen, Gbg  
-2015-16	*Three White Soldiers II*, Paulin/Forsman	Skogen, Gbg, Weld, Sthlm, Inkonst, Malmö	 
+2015-16	*Three White Soldiers II*, Paulin/Forsman	Skogen, Gbg, Weld, Sthlm, Inkonst, Malmö	  
 2013   	*Parzival*, Ekdahl/Eschenbach	Backateatern, Gothenburg  
 2014-15 *Three White Soldiers I*, Paulin/Forsman	Skogen/Gbg, Sthlm, Cph, Cairo   
 2012 	  *Villanden*, Ibsen 	Nationaltheatret, Oslo  
