@@ -55,13 +55,16 @@ And it was here, in this blighted place,
 that he learned to live again.*
 
 The opening lines of *Mad Max 2* from 1981 describe a passage; obviously between the different worlds of the first *Mad Max* (1979) and the recent *Mad Max, Fury Road* (2015), but also between two socio-economic paradigms.  
+
 This passage is a transition from a world ”powered by the black fuel”, where war had been fought between nations in order to control production, to a world ”haunted by the demons of its past”; where all imaginable kind of production is obsolete and everyone is fighting anyone in a dog-eats-dog war over the leftovers from a capitalism, since long lost ”in the roar of an engine”.  
+
 In the first *Mad Max* life still related to institutional structures like family and police of rural communities. In the sequel existence plays out in an all-embracing desert landscape. Here, where the desert is the surface of the Real, dreams are projected onto a future. In the last *Mad Max: Fury Road*, the idea of an exterior utopia is finally cancelled: the dreamt-of oasis of organic growth is a toxic swamp. The feminist cell resisting the patriarchy of systematized subordination is thrown back into the immanent world of roaring engines and ultra-speed. There is no outside, no other space, the war has to be fought in Real of the desert.
 
 *”When I talk about shit, it is hardly a metaphor: Capitalism reduces everything to shit, to the state of undifferentiated and decoded streams out of which everyone has to take its part in a private ode and with a sense of culpability”*
 Felix Guattari (as quoted by Benjamin Noys in *Malign Velocities*)
 
 When *Mad Max – Beyond Thunderdome* begins, the sun rises over a wasteland desert, void of organic ecology. Bartertown, not a town really, rather an intensification of humanoids, is kept alive literally by pig shit – the methane gas being the new resource of power to keep cars and other machines running.  
+
 In *Thunderdome* there actually is some sort of other-place – a hidden oasis, a kind of paradisic concealment, randomly forgotten by its environment. It is inhabited by a tribe of kids celebrating a mythology built on the narrative of a lost civilization: the legend of Tomorrow-Morrow Land, a fantasy of cities before the apocalyptic event called the Pox-eclipse, is simultaneously history and future; a lost origin onto which the orphan children and adolescents project their hope of a possible future
 
 The iconic representation of this past-future is a crashed airplane, half-buried in the sand of the desert. The kids worship Captain Walker, the mythic overlord of the vehicle, who will return and take them back to the Eden of urban civilization – the Tomorrow-Morrow Land. But when encountering Max, whom the orphans mistake for Captain Walker, he has only harsh facts to offer: *"There were places like this, they were called cities. But then this Pox-eclipse happened, so it is all finished. It´s just not there anymore. So, we got to understand that this is home. There is no Tomorrow-land.”*
