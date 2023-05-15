@@ -1,4 +1,4 @@
-**Specters of Marx (excerpt)**
+**Specters of Marx (excerpt)**  
 *Jacques Derrida*
 
 If we now prepare ourselves to speak about ghost, about inheritance and generation, which is to say about certain others who are not present, not presently living, not here among us or within us or outside of us, then it is in the name of justice. In the name of justice where it is not yet, not yet there, where it is no longer, in the sense that it is no longer present.
@@ -10,6 +10,7 @@ No justice seems possible or thinkable without the principle of some responsibil
 Without this non-contemporaneity with itself of the living present, without this responsibility and this respect for justice concerning those who are not there of those who are no longer or who are not yet present and living, what sense would there be to ask the question ”Where?”. ”Where tomorrow?”. ”Whither?”.
 
 This question arrives, (if it arrives,) it questions with regard to what will come in the future-to-come. Turned toward the future, going toward it, it also comes from it, it proceeds from the future. It must therefore exceed any presence as presence to itself
+
 This question, which is perhaps no longer a question and which we are calling here justice, must carry beyond present life, life as my life or our life. In general. For it will be the same thing for the ”my life” or ”our life” tomorrow, that is, for the life of others, as it was yesterday for other others; beyond therefore the living present in general.
 
 The spirit and the specter are not the same thing, but as for what they have in common, one does not know what it is, what it is presently. It is something that one does not know, precisely, and one does not know if precisely it is, if it exists, if it responds to a name (and corresponds to an essence.) One does not know: not out of ignorance, but because this non-object, this non-present present, this being-there of an absent or departed one no longer belongs to knowledge. One does not know if it is living or if it is dead.
