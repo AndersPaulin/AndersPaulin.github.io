@@ -67,4 +67,5 @@ The Project Horizon
 ## CV  
 [CV](/cv.md)
 
-## Contact
+## Contact  
+[Contact](/kontakt.md)  
