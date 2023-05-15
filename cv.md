@@ -98,11 +98,3 @@ Dramaturgi, Dramatiska Institutet Stockholm 1991-94
 
 
 
-**Kontakt**  
-Anders Paulin  
-Ljusstöparbacken 1  
-11765 Stockholm  
-+46–708 193388
-
-http://www.anderspaulin.com/   
-anderspaulin@gmail.se  
