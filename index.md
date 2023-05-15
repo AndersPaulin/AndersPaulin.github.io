@@ -39,7 +39,7 @@
 [Kulturhuset - A Hauntology](/juvelentxt.md)  
 [Art In The Age Of Sampling Technology](/sampling.md)  
 [Tankar 22 December 2021](/tankar.md)  
-Innocence & Privilege  
+[Innocence & Privilege](/innocence.md)  
 Solar Eclipse  
 I Am Not The Same As Me  
 Similarity-As-Such  
