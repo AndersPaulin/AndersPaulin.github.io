@@ -1,5 +1,5 @@
-Listening (excerpt)
-Jean Luc Nancy
+**Listening (excerpt)**  
+*Jean Luc Nancy*
 
 Is listening something of which philosophy is capable? Or – we ?ll insist a little, at the risk of exaggerating the point – hasn ?t philosophy superimposed upon listening, beforehand and of necessity, or substituted for listnening, something else that might be more in the order of understanding? Isn ?t the philosopher someone who always hears (and who hears everything), but who cannot listen, or who, more precisely, neutralizes listening within himself, so that he can philosophize?
 
