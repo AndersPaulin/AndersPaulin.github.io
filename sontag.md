@@ -84,5 +84,5 @@ Our task is not to find the maximum amount of content in a work of art, much les
 
 The aim of all commentary on art now should be to make works of art-and, by analogy, our own experience-more, rather than less, real to us. The function of criticism should be to show how it is what it is, even that it is what it is, rather than to show what it means.
 
-10
+10  
 In place of a hermeneutics we need an erotics of art.
