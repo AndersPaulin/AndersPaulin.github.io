@@ -73,5 +73,5 @@ The old trope of the avantgarde vs. the mainstream is no longer valid; nor is th
 *Paragraph 10*  
 The institution is the tool we invented to negotiate how to share a public realm; a structure where we can invest the result of our work to be implemented and digested over timeframes exceeding the lifespan of individuals as well as generations. The institutions is the necessary apparatus to negotiate the relation not only between us who are presently sharing a socio-political sphere, but also – to speak with Derrida – an interface for negotiation with those who are not-us, not-here and not-now.
 
-*Paragraph 11*. 
+*Paragraph 11*  
 The Institution is slow, it is everything but contemporary; it´s not flexible, it is by definition heavy to move and conservative in taste as well as modes of productions. This, we can all agree, is of course annoying. But in the current time – where the neoliberal economy produces a 24/7 demand of speed, accessibility, flexibility, mobility and a general readiness of everyone to at any time transform into anything – the very heaviness and unbearably physical character of both the walls and staff that by nature refuses change carries an interesting radicality.
