@@ -29,8 +29,8 @@ En personlig detalj: Ju längre jag färdas ut mot det mål jag inte känner, de
 
 Bussen svänger av vid Häggvik; följer viadukten under E4:an på väg ut mot Järvafältet.
 
-Inbillningskraften är en förmåga, som svävar mitt emellan bestämning och icke-bestämning, mellan ändligt och oändligt. (…) Förnuftet känner inte av någon tid, för det är allt samtidighet, endast för inbillningen kan gränsen mellan jag och icke-jag sträckas ut i föreställningens form och inför tiden som moment.  
-Inbillningen orkar emellertid inte hålla kvar sin föreställning längre än ett ögonblick utom i det sublimas erfarenhet, som Fichte beskriver som en häpnad, en frysning av övergången mellan jag och icke-jag.
+*Inbillningskraften är en förmåga, som svävar mitt emellan bestämning och icke-bestämning, mellan ändligt och oändligt. (…) Förnuftet känner inte av någon tid, för det är allt samtidighet, endast för inbillningen kan gränsen mellan jag och icke-jag sträckas ut i föreställningens form och inför tiden som moment.    
+Inbillningen orkar emellertid inte hålla kvar sin föreställning längre än ett ögonblick utom i det sublimas erfarenhet, som Fichte beskriver som en häpnad, en frysning av övergången mellan jag och icke-jag.*
 
 Bussresan är – efter att rösten i hörlurarna har tagit slut och allt som återstår är en ljudsatt tystnad och väntan på en ankomst – en re-enactment av resan på dressinen i filmen *Stalker*: en liten grupp färdas, av olika skäl och med olika drömmar, genom ett landskap som inte avslöjar sitt egentliga innehåll.
 
