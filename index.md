@@ -64,6 +64,7 @@ Before The Law (Derrida)
 Reagan Speech in Moscow  
 The Project Horizon  
 
-## CV
+## CV  
+[CV](/cv.md)
 
 ## Contact
