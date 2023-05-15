@@ -60,7 +60,7 @@ This passage is a transition from a world ”powered by the black fuel”, where
 
 In the first *Mad Max* life still related to institutional structures like family and police of rural communities. In the sequel existence plays out in an all-embracing desert landscape. Here, where the desert is the surface of the Real, dreams are projected onto a future. In the last *Mad Max: Fury Road*, the idea of an exterior utopia is finally cancelled: the dreamt-of oasis of organic growth is a toxic swamp. The feminist cell resisting the patriarchy of systematized subordination is thrown back into the immanent world of roaring engines and ultra-speed. There is no outside, no other space, the war has to be fought in Real of the desert.
 
-*”When I talk about shit, it is hardly a metaphor: Capitalism reduces everything to shit, to the state of undifferentiated and decoded streams out of which everyone has to take its part in a private ode and with a sense of culpability”*
+*”When I talk about shit, it is hardly a metaphor: Capitalism reduces everything to shit, to the state of undifferentiated and decoded streams out of which everyone has to take its part in a private ode and with a sense of culpability”*  
 Felix Guattari (as quoted by Benjamin Noys in *Malign Velocities*)
 
 When *Mad Max – Beyond Thunderdome* begins, the sun rises over a wasteland desert, void of organic ecology. Bartertown, not a town really, rather an intensification of humanoids, is kept alive literally by pig shit – the methane gas being the new resource of power to keep cars and other machines running.  
@@ -70,6 +70,7 @@ In *Thunderdome* there actually is some sort of other-place – a hidden oasis, 
 The iconic representation of this past-future is a crashed airplane, half-buried in the sand of the desert. The kids worship Captain Walker, the mythic overlord of the vehicle, who will return and take them back to the Eden of urban civilization – the Tomorrow-Morrow Land. But when encountering Max, whom the orphans mistake for Captain Walker, he has only harsh facts to offer: *"There were places like this, they were called cities. But then this Pox-eclipse happened, so it is all finished. It´s just not there anymore. So, we got to understand that this is home. There is no Tomorrow-land.”*
 
 36 years have passed between *Mad Max* and *Mad Max: Fury Road*. In terms of gender perspectives a lot has changed; Max has transformed into witness and side-kick and the imagery of woman as complementary, wife and victim, has taken over the actual subjectivity of the story. But when it comes to the world as relation between modes of production and imagery, humanity is still stuck in an infinte, self-feeding ultra-speed voyage through the wasteland, where ”only those mobile enough to scavenge will survive”. There is no way out, any vision of a possible escape proves the collective fantasy to be a wormhole leading back to the Real of the desert as constituted by the reality of production.  
+
 And it was here, in this blighted place, that we learned to live again.
 
 **Collapse of Fantasy into the Real**  
