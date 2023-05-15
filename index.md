@@ -43,7 +43,7 @@
 [Solar Eclipse](/solareclipse.md)  
 ["I" Am Not The Same As "Me"](/iamnotthesame.md)  
 [Similarity-As-Such](/similarity.md)  
-The Shofar (and The Drop)  
+[The Shofar (and The Drop)](/shofar.md)  
 Some Thoughts on Art, Education & Its Institutions  
 Collapse of Fantasy  
 Speed and Gravity  
