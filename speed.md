@@ -20,7 +20,7 @@ The institutions of the 20th century still carried the legacy of the national st
 
 We are often using the metaphor of dinosaurs for these big, clumsy and old organisations – but what happens if we follow the line of that comparison? Is a society without institutions still a society? How can we think institutional critique in the context of the institution as an endangered species? In our time – when post-fordist economy is transforming existing platforms to cultural shopping malls, where knowledge, aesthetics and politics is produced and consumed in as generic forms as possible – is it possible to rethink and re-claim the institution as a necessary mediator between society and citizens?
 
-*Paragraph 5*
+*Paragraph 5*  
 SANDRA BULLOCK I:  
 *At 600 km above planet earth the temperature fluctuates between +258 and -148 degrees fahrenheit. There is nothing to carry sound. No air pressure. No oxygen. Life in space is impossible.*  
 
