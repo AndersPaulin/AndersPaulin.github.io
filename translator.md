@@ -1,4 +1,4 @@
-**The Translator's Task**
+**The Translator's Task**  
 *Walter Benjamin*
 
 When seeking knowledge of a work of art or an art form,
