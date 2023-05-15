@@ -40,8 +40,8 @@
 [Art In The Age Of Sampling Technology](/sampling.md)  
 [Tankar 22 December 2021](/tankar.md)  
 [Innocence & Privilege](/innocence.md)  
-Solar Eclipse  
-I Am Not The Same As Me  
+[Solar Eclipse](/solareclipse.md)  
+["I" Am Not The Same As "Me"](/iamnotthesame.md)  
 Similarity-As-Such  
 The Shofar (and The Drop)  
 Some Thoughts on Art, Education & Its Institutions  
