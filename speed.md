@@ -62,7 +62,7 @@ The bad guy is a former cop, asking for both money and revenge. His only motive 
 
 Sandra Bullock´s position is existence without any plans for the future; it is all about inventing new strategies for staying in course without dropping speed, one block and one minute at a time. Temporary solutions to a constant, endless series of temporary emergencies. The passangers´ temporary applauses for temporary victories linger a couple of seconds; a brief moment of catching our breath before a new strategy to maintain speed has to be invented.
 
-*Paragraph 8*. 
+*Paragraph 8*  
 We are creating an infinitely increasing number of platforms to produce ”difference”. Temporary residencies and workshops, platforms and autonomous art collectives; they all produce new and differentiated toolboxes and strategies, supporting differentiated subjectivities and agendas. This apparatus is the inevitable logic of our contemporary modes of productions – festivals, projects, temporary collaborations – focusing on an accelerated production and expression of identity and subjectivity, rather than the implementation and negotiation of the produced notions and tools into a public sphere.
 
 When do these different identities negotiate their differences? Where is the space where these new and differentiated subjectivities have to confront their different positions and agendas with each other? And where do we deal with the strategies, toolboxes and agendas that we produced last week?
