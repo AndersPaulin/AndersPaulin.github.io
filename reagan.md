@@ -11,10 +11,10 @@ In 1988, after the introduction of Perestrojka but before the fall of the Sovjet
 *Like a chrysalis, we're emerging from the economy of the Industrial Revolution – an economy confined to and limited by the Earth's physical resources – into "The Economy in Mind", in which there are no bounds on human imagination and the freedom to create is the most precious natural resource. In the new economy, human invention increasingly makes physical resources obsolete. We're breaking through the material conditions of existence to a world where man creates his own destiny.
 Today the world looks expectantly to signs of change. There are some, I know, who fear that change will bring only disruption and discontinuity, who fear to embrace the hope of the future – sometimes it takes faith. It's like that scene in the cowboy movie "Butch Cassidy and the Sundance Kid"
 
-*The posse is closing in on the two outlaws, Butch and Sundance. They find themselves trapped on the edge of a cliff, with a sheer drop of hundreds of feet to the raging rapids below.
-Butch turns to Sundance and says their only hope is to jump into the river below
-But Sundance refuses. He says he'd rather fight it out with the posse, even though they're hopelessly outnumbered.
-Butch says ”That's suicide” and urges him to jump
-Sundance still refuses and finally admits, "I can't swim."
-Butch breaks up laughing and says, "You crazy fool, the fall will probably kill you."
+*The posse is closing in on the two outlaws, Butch and Sundance. They find themselves trapped on the edge of a cliff, with a sheer drop of hundreds of feet to the raging rapids below.  
+Butch turns to Sundance and says their only hope is to jump into the river below. 
+But Sundance refuses. He says he'd rather fight it out with the posse, even though they're hopelessly outnumbered.  
+Butch says ”That's suicide” and urges him to jump  
+Sundance still refuses and finally admits, "I can't swim."  
+Butch breaks up laughing and says, "You crazy fool, the fall will probably kill you."  
 And, by the way, both Butch and Sundance made it, in case you didn't see the movie.*
