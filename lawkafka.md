@@ -20,7 +20,9 @@ The man, who has equipped himself with many things for his journey, spends every
 During the many years the man observes the gatekeeper almost continuously. He forgets the other gatekeepers, and this first one seems to him the only obstacle for entry into the law. He curses the unlucky circumstance, in the first years thoughtlessly and out loud; later, as he grows old, he only mumbles to himself. He becomes childish and, since in the long years studying the gatekeeper he has also come to know the fleas in his fur collar, he even asks the fleas to help him persuade the gatekeeper.
 
 Finally his eyesight grows weak, and he does not know whether things are really darker around him or whether his eyes are merely deceiving him. But he recognizes now in the darkness an illumination which breaks inextinguishably out of the gateway to the law. Now he no longer has much time to live.
+
 Before his death he gathers in his head all his experiences of the entire time up into one question which he has not yet put to the gatekeeper. He waves to him, since he can no longer lift up his stiffening body.
+
 The gatekeeper has to bend way down to him, for the great difference has changed things considerably to the disadvantage of the man. “What do you still want to know now?” asks the gatekeeper. “You are insatiable.” “Everyone strives after the law,” says the man, “so how is that in these many years no one except me has requested entry?”
 
 The gatekeeper sees that the man is already dying and, in order to reach his diminishing sense of hearing, he shouts at him, “Here no one else can gain entry, since this entrance was assigned only to you. I’m going now to close it.”
