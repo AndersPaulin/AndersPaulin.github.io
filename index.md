@@ -56,8 +56,8 @@
 [The Language of Things](/languagethings.md)  
 [The Translator's Task](/translator.md)  
 [Listening](/listening.md)  
-Spectres of Marx  
-Towards a Minor Literature  
+[Spectres of Marx](/spectres.md)  
+[Towards a Minor Literature](/minor.md)  
 Questions to Stella and Judd  
 Before The Law (Kafka)  
 Before The Law (Derrida)  
