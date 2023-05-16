@@ -58,7 +58,7 @@
 [Listening](/listening.md)  
 [Spectres of Marx](/spectres.md)  
 [Towards a Minor Literature](/minor.md)  
-Questions to Stella and Judd  
+[Questions to Stella and Judd](/stellajudd.md)  
 Before The Law (Kafka)  
 Before The Law (Derrida)  
 Reagan Speech in Moscow  
