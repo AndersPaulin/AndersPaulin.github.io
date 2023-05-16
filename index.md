@@ -62,7 +62,7 @@
 [Before The Law (Kafka)](/lawkafka.md)  
 [Before The Law (Derrida)](/lawderrida.md)  
 [Ronald Reagan Speech at Moscow State University 1988](/reagan.md)  
-The Project Horizon  
+[The Project Horizon](/project.md)  
 
 ## CV  
 [CV](/cv.md)
