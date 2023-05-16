@@ -1,5 +1,5 @@
-Before the Law
-Franz Kafka
+**Before the Law**  
+*Franz Kafka*
 
 Before the law sits a gatekeeper. To this gatekeeper comes a man from the country who asks to gain entry into the law.
 
