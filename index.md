@@ -60,7 +60,7 @@
 [Towards a Minor Literature](/minor.md)  
 [Questions to Stella and Judd](/stellajudd.md)  
 [Before The Law (Kafka)](/lawkafka.md)  
-[Before The Law (Derrida)(/lawderrida.md)  
+[Before The Law (Derrida)](/lawderrida.md)  
 Reagan Speech in Moscow  
 The Project Horizon  
 
