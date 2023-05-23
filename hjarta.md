@@ -13,3 +13,22 @@ Berättelsen är en undersökning av fenomenet produktion, förstått ur sina ol
 *Process*  
 Produktionen skapas under ett flertal arbetsperioder under oktober 2021 till augusti 2022, och har premiär i början av september 2022. Vi tänker oss ett arbete där vi kommunicerar med ett antal platser genom hela processen, där vi förhoppningsvis kan lära känna Gävleborg genom vårt sökande efter de lokala berättelserna. Föreställningen kommer spelas på ett flertal olika platser i länet.
 Dramatiseringen bygger på en nyskriven text där filmmanuskriptets struktur och fabel möter research-material som vi samlar in under ett antal residensperioder på olika platser i länet. Under arbetsrförloppetbjuder vi kontinuerligt in till samtal där vi tänker kring arbetet tillsammans med människor från platserna vi arbetar på, och en serie av enkla och informella presentationer av arbetet. 
+
+
+![](/hjartatalt.jpg)
+
+![](/hjartagrav.jpg)  
+
+![](/hjartagrav2.jpg)  
+
+![](/hjartabiblio1.jpg)  
+
+![](/hjartabiblio2.jpg)  
+
+![](/hjartabiblio3.jpg)
+
+
+
+
+
+
