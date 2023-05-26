@@ -3,7 +3,7 @@
 ![](/neithersmall.jpg)
 
 ## PRESENT
-[Hjärta av Glas](/hjarta.md)  
+[Hjärta av Glas/Heart of Glass](/hjarta.md)  
 [Tibrosamlingen](/tibro.md)    
 
 ## SOME PLANS
