@@ -33,6 +33,15 @@ Föreställningen bygger på en nyskriven text av Emma Palmkvist baserad på Wer
 
 ![](/hjartabiblio3.jpg)
 
+![](/hjartamaj1.jpg)
+
+![](/hjartamaj2.jpg)
+
+![](/hjartamaj3.jpg)
+
+![](/hjartamaj4.jpg)
+
+![](/hjartamaj5.jpg)
 
 
 
