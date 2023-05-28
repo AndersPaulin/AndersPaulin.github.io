@@ -3,12 +3,12 @@
 ![](/neithersmall.jpg)
 
 ## PRESENT
-[Heart of Glass](/hjarta.md)  
+[Hjärta av Glas (Heart of Glass)](/hjarta.md)  
 [Tibrosamlingen](/tibro.md)    
 
 ## SOME PLANS
-[Melancholy Of Resistance](/melancholy.md)  
-[Utsikt Över Omelas](/omelas.md)  
+[Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
+[Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
 ## SOME THINGS FROM THE PAST
@@ -20,20 +20,20 @@
 [Double Feature](/doublefeature.md)  
 [Fiction/Reality](/fictionreality.md)  
 [Parzival](/parzival.md)  
-[Wild Duck](/villanden.md)  
+[Villanden (Wild Duck)](/villanden.md)  
 [KAFAK (FAKAK aka AKFAK)](/kafak.md)  
 [Temporary National Theatre](/tnt.md)  
 [Vertical Gardening Jalazoun](/vertical.md)  
 [Neither You Nor Me](/neither.md)  
-[Le Mépris](/mepris.md)  
+[Foragt (Le Mépris)](/mepris.md)  
 [Gösta Berlings Saga/Basel](/gostabasel.md)  
 [Gösta Berlings Saga/Uppsala](/gostauppsala.md)  
 [Mephisto, Deutsches Schauspielhaus](/mephisto.md)    
-[A Midsummernight's Dream](/midsommar.md)  
-[Kasimir und Karoline](/kasimir.md)  
-[Cleansed](/cleansed.md)  
+[En Skærsommernatsdrøm (A Midsummernight's Dream)](/midsommar.md)  
+[Kasimir & Karoline](/kasimir.md)  
+[Renset (Cleansed)](/cleansed.md)  
 [Faust](/faust.md)  
-[Kamraterna](/kamraterna.md)  
+[Kamraterna (Comrades)](/kamraterna.md)  
 
 ## TEXTS
 [Kulturhuset - A Hauntology](/juvelentxt.md)  
