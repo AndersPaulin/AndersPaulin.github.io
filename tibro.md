@@ -24,6 +24,9 @@ Producerat av Skogen med stöd av Statens Kulturråd
 Tack till Tibro Museum, Martin Toresson, Leif Ahnland, Nya Hotellet,
 Västergötlands Museum och alla vi träffat i Tibro.
 
+![](/tibrostation.jpg) 
+
+
 **THE TIBRO COLLECTION**. 
 **Half-True Stories of the World and Tibro**
 
