@@ -4,7 +4,7 @@
 
 ## PRESENT
 [Hjärta av Glas (Heart of Glass)](/hjarta.md)  
-[Tibrosamlingen](/tibro.md)    
+[Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
 ## SOME PLANS
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
