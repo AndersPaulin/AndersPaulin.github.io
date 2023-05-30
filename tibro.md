@@ -22,5 +22,23 @@ Producerat av Skogen med stöd av Statens Kulturråd
 Tack till Tibro Museum, Martin Toresson, Leif Ahnland, Nya Hotellet,
 Västergötlands Museum och alla vi träffat i Tibro.
 
+**THE TIBRO COLLECTION**. 
+**Half-True Stories of the World and Tibro**
+
+The Tibro Collection is the first performance produced within the framework of the project The Promise, that was initiated 2020 and will be finalized in 2050.
+
+Why do they wander around exactly  in Tibro? If they would be asked that question, they would probably claim that it doesn't have any obvious answer. "We've spent considerable time pondering that issue ourselves", they would say, "which perhaps has thrown some light on various other phenomenons that could deserve our attention, but without bringing us any closer to the truth as to why we return to Tibro." Then again, they might think, one always positions oneself in a place, and why wouldn't Tibro be just as reasonable a choice as any other?
+
+Anders Paulin and Johan Forsman arrive to Tibro after a serie of random events; a small town in the mid-west of Sweden, which for hundred years was synonymous with Swedish furniture manufacturing. Today most of the industry has since long moved elsewhere, and the trains ceased to pass. Through the brushwood of the overgrown track area, Tibro's urban planner is wandering with a dream of a house of culture.
+
+The commission that brought them to Tibro slowly dissolves in an increasingly self-inflicted and existential project. They understand less and less of what they are doing, and why the keep returning. They wander back and forth over the rails, passing the café and a cup of coffe, over the parking lot at the main square, and then back again. They look over towards the former granary of Centralföreningen in the eastern end of the track area.
+
+The Tibro Collection is an assembly of stories, artefacts, sounds and images, that in various ways have arrived to us by observing the world from the position of Tibro. It is an associatory and hardly comprehensive journey through the rise and dissolution of modernity, through the history of Swedish furniture and the organisation of small scale industry, through stops in the transition from nomadic Stone Age to agriculture in the region of Skaraborg, via station masters, linemen, entrepeneurs, local photographers - all the way to the work on  the cities new local plan.
+
+The Promise writes and appropriates a number of semi-fictive art collections, art spaces, ritual sites and houses of culture. The project's growing fauna of local art historical archives constitute a consortium of immaterial culture estates and a culture political network of imaginary participants, places, cities and buildings. What happens to the various houses and places included in the project until 2050, becomes part of the narrative and the ongoing artistic process.
+
+By and with: Anders Paulin and Johan Forsman
 
 ![](/tibro2.jpg) 
+
+
