@@ -45,12 +45,11 @@ By and with: Anders Paulin and Johan Forsman
 
 ![](/tibroweld2.jpg)
 
-![](/tibrotibro4.jpg.jpg) 
-
 ![](/tibrotibro1.jpg) 
 
 ![](/tibrotibro2.jpg) 
 
+![](/tibrotibro4.jpg.jpg) 
 
 
 
