@@ -1,3 +1,5 @@
+![](/tibro2.jpg) 
+
 **TIBROSAMLINGEN**  
 **Halvsanna Berättelser om Världen och Tibro**
 
@@ -38,8 +40,6 @@ The commission that brought them to Tibro slowly dissolves in an increasingly se
 **The Promise** writes and appropriates a number of semi-fictive art collections, art spaces, ritual sites and houses of culture. The project's growing fauna of local art historical archives constitute a consortium of immaterial culture estates and a culture political network of imaginary participants, places, cities and buildings. What happens to the various houses and places included in the project until 2050, becomes part of the narrative and the ongoing artistic process.
 
 By and with: Anders Paulin and Johan Forsman
-
-![](/tibro2.jpg) 
 
 ![](/tibroweld1.jpg) 
 
