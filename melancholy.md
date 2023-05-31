@@ -21,7 +21,7 @@ While waiting for the true miracle, we line up to witness the spectacle - the Wh
 Afterwards all and nothing is the same, as usual. Everything has happened, and nothing. Except time.
 
 
-**MOTSTÅNDETS MELANKOLI**
+**MOTSTÅNDETS MELANKOLI**  
 **László Krasnahorkai**
 
 Platsen för förloppet är en liten residensstad. Inte en landsorthåla – verkligen inte, både staden och dess invånare har kultur och anor – men inte heller en central storstad. Det finns ett bibliotek – naturligtvis, det är som sagt en bildningens ort, absolut inte någon isolerad landsby – en polischef, fast inte fler, och om någon pratar om rektorn förstår alla vem som avses. Det är en plats med en tydlig idé om var den hör hemma, vad angår position såväl som värderingar.
