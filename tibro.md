@@ -1,3 +1,4 @@
+![](/tibro25cm.jpg) 
 
 **TIBROSAMLINGEN**  
 **Halvsanna Berättelser om Världen och Tibro**
