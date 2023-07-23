@@ -7,7 +7,7 @@
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
 ## SOME PLANS
-[ProponeisiS & Nollamorfa](/proppen.md)  
+[ProponeisiS & Nollamorfa](/propp.md)  
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
 [Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
