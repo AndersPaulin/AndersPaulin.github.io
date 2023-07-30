@@ -1,6 +1,33 @@
-*Fortsätt.* Jag faller i min egen tomhet. Faller. Faller. Det är ingenting där. Det fnns ingenting att fästa sig i, ingenting att ta spjärn emot. Jag vet inte. Jag bara faller och faller och faller. Jag gör inte heller något motstånd. Det är nog inte ens jag. Eller ens ett jag. Möjligen delar av ett jags försvinnande minne. Jag vet inte. *Fortsätt.* Jag vet inte. Det är så det är. *Fortsätt.* Det var en bok jag tänkte på. Jag gjorde omfattande anteckningar till den den. *Fortsätt.* Jag tänkte initialt på materialet som en pjäs för teatern, trots att jag ju sen länge slutat göra teatertexter, eftersom det är fullständigt dödfött. Ja, svensk teater är ju påtagligt estetiskt retarderad, dess självförståelse vad gäller politisk relevans är plågsamt naivistisk. Det är alltid bara liberalistisk och populistisk agitprop. *Fortsätt.* Jag vet inte. *Fortsätt.* Det är och förblir extremt att tala. Det är och förblir och har alltid varit mig främmande. Och jag gör det inte heller, om jag inte får betalt. Och då bara som mumlande, mimande; som faller jag in i annans sömniga tal.    
+*Fortsätt.*   
+Jag faller i min egen tomhet. Faller. Faller. Det är ingenting där.   
+Det finns ingenting att fästa sig i, ingenting att ta spjärn emot.   
+Jag vet inte. Jag bara faller och faller och faller. Jag gör inte   
+heller något motstånd. Det är nog inte ens jag. Eller ens ett jag.   
+Möjligen delar av ett jags försvinnande minne. Jag vet inte.  
+*Fortsätt.*  
+Jag vet inte. Det är så det är.  
+*Fortsätt.*  
+Det var en bok jag tänkte på. Jag gjorde omfattande anteckningar till den.  
+*Fortsätt.*  
+Jag tänkte initialt på materialet som en pjäs för teatern, trots att  
+jag ju sen länge slutat göra teatertexter, eftersom det är fullständigt  
+dödfött. Ja, svensk teater är ju påtagligt estetiskt retarderad, dess  
+självförståelse vad gäller politisk relevans är plågsamt naivistisk.  
+Det är alltid bara liberalistisk och populistisk agitprop. 
+*Fortsätt.*  
+Jag vet inte.  
+*Fortsätt.*  
+Det är och förblir extremt att tala. Det är och förblir och har alltid  
+varit mig främmande. Och jag gör det inte heller, om jag inte får betalt.  
+Och då bara som mumlande, mimande; som faller jag in i annans sömniga tal.    
 
-*Jag nedtecknar allt detta den 4:e september 2018. Det är i slutet av min levnad, eller vad man ska kalla det; jag minns ingenting av det, utöver dessa synnerligen perifera marginalanteckningar – som jag inte behöver lägga på minnet, eftersom jag istället ristar in dem i anteckningsbokens och worddokumentets simulakrum av verkställt outopia. Den plats som är, nu hastigt var, var, var, (med mitt hela jävla skitliv) istället för något annat. Jag vet inte. Nej. Jag vet inte. Jag vet inte.*
+*Jag nedtecknar allt detta den 4:e september 2018. Det är i slutet av min  
+levnad, eller vad man ska kalla det; jag minns ingenting av det, utöver  
+dessa synnerligen perifera marginalanteckningar – som jag inte behöver  
+lägga på minnet, eftersom jag istället ristar in dem i anteckningsbokens  
+och worddokumentets simulakrum av verkställt outopia. Den plats som är,  
+nu hastigt var, var, var, (med mitt hela jävla skitliv) istället för något annat.  
+Jag vet inte. Nej. Jag vet inte. Jag vet inte.*
 
 **        **        **        **        **
 
