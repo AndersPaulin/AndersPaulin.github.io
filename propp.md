@@ -91,7 +91,7 @@ igen, upprepa: Jag behöver verkligen mina pengar
 nu, så fort som möjligt. Jag måste ha pengarna  
 mycket snart. Jag behöver pengarna. 
 
-B
+B  
 Utan skillnader heller inget liv. Versifering.  
 Versifering. Versifering. Annars inget urskilj-  
 bart liv.   
@@ -102,12 +102,12 @@ blir realiserade; tomma löften, potentialitets-
 lögnens ideologisering. Jag vet inte. Nej. Nej.   
 Jag vet inte. Ja. Jag vet inte.   
 
-B
+B  
 Alla dessa små, högljudda  vänsterkapitalistiska   
 enklaver. Vad annat skulle de aktivistiska sub-   
 jekten kunna vara? Vad annat också jag?  
 
-A  
+A   
 Jag förblir marxistisk, livet ut. Jag vet det.    
 Jag förstår det. Det vill säga: Jag förblir i en  
 negation, en (förrådande) tradition som producerar  
@@ -122,7 +122,7 @@ B
 *Boken svarar inte. Den lämnar dig alltid med   
 avgrunden kvar.*  
   
-C  
+C   
 Jag lever på övertid, har gjort det länge, länge;  
 nog redan från mycket tid. Det var ofrånkomligt.  
 Att de egna barnen fortsätter det fatala. Klass-  
