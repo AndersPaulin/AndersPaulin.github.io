@@ -2,17 +2,17 @@
 
 ![](/neithersmall.jpg)
 
-## PRESENT
+## PRESENT THINGS
 [Hjärta av Glas (Heart of Glass)](/hjarta.md)  
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
-## SOME PLANS
+## THINGS I'D LIKE TO DO
 [ProponeisiS & Nollamorfa](/propp.md)  
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
 [Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
-## SOME THINGS FROM THE PAST
+## THINGS I HAVE DONE
 [Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
@@ -36,7 +36,7 @@
 [Faust](/faust.md)  
 [Kamraterna (Comrades)](/kamraterna.md)  
 
-## TEXTS
+## TEXT-THINGS
 [Kulturhuset - A Hauntology](/juvelentxt.md)  
 [Art In The Age Of Sampling Technology](/sampling.md)  
 [Tankar 22 December 2021](/tankar.md)  
