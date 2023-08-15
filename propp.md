@@ -61,7 +61,7 @@ Ser på tv. Jag äcklas, står inte ut med att lyssna
 på dess ideologiska propaganda. Vill pissa i varje   
 käft som upprepar den där välorganiserade klass-   
 hatspolitiken. Överallt en massa jävla maskeradteve.   
-Vilka värdelösa idioter förmår sig själv att titta   
+Vilka värdelösa idioter förmår sig själv att titta    
 på detta. Svar: Icke läskunniga nollor, som endast   
 klarar av att aplikt och pavlovskt svara på den mest   
 simplistiska bildregim. Att döma av tittarsiffror och   
