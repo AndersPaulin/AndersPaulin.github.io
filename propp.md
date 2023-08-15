@@ -367,14 +367,11 @@ När jag vaknar på morgonen, tidigt, vid kvart i fem, minns jag drömmen fo�
  *  * 
 
 
-
-
-
-B 
-regnet faller 
-och faller 
-som 
-inga tårar kan 
+B  
+ regnet faller  
+ och faller  
+som  
+ inga tårar kan  
 
 
 
