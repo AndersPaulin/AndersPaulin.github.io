@@ -47,13 +47,13 @@ C
 Var och varannan granne idiot och psykfall. Kan   
 de inte bara dö eller flytta, vräkas. Du har ett   
 värdelöst liv, okej, originellt. Välkommen i   
-klubben. Men måste du prompt och tvångsmässigt    
-pracka på grannarna ditt värdelösa liv och göra   
-vårt liv än mer värdelöst. Det räcker väl för fan   
-med allt det värdelösa som redan är. Sköt din egen   
-skit. Ät din egen skit. Det får ju vi göra. Låt oss   
-för fan i helvetes jävlar oss vara ifred med våra   
-mediokra jävla skitliv.  
+klubben. Men måste du prompt och tvångs-   
+mässigt pracka på grannarna ditt värdelösa liv   
+och göra vårt liv än mer värdelöst. Det räcker    
+väl för fan med allt det värdelösa som redan är.   
+Sköt din egen skit. Ät din egen skit. Det får ju   
+vi göra. Låt oss för fan i helvetes jävlar oss   
+vara ifred med våra mediokra jävla skitliv.  
 
 
 A     
