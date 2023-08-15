@@ -36,11 +36,24 @@ Anders Paulin
 (utdrag ur *ProponeisiS* 2021)
 
 A   
-Jag måste få in mer pengar. Måste. Vi måste få in mer pengar. Måste. Mera pengar. Mer. Det är pengarna som tickar fram egen död. Räkningarna som dunsar ner på hallmattan som seriella katastrofer som inte upphör. 
+Jag måste få in mer pengar. Måste. Vi måste få  
+in mer pengar. Måste. Mera pengar. Mer. Det är  
+pengarna som tickar fram egen död. Räkningarna  
+som dunsar ner på hallmattan som seriella kata- 
+strofer som inte upphör. 
 
 
 C   
-Var och varannan granne idiot och psykfall. Kan de inte bara dö eller flytta, vräkas. Du har ett värdelöst liv, okej, originellt. Välkommen i klubben. Men måste du prompt och tvångsmässigt pracka på grannarna ditt värdelösa liv och göra vårt liv än mer värdelöst. Det räcker väl för fan med allt det värdelösa som redan är. Sköt din egen skit. Ät din egen skit. Det får ju vi göra. Låt oss för fan i helvetes jävlar oss vara ifred med våra mediokra jävla skitliv. 
+Var och varannan granne idiot och psykfall. Kan  
+de inte bara dö eller flytta, vräkas. Du har ett  
+värdelöst liv, okej, originellt. Välkommen i  
+klubben. Men måste du prompt och tvångsmässigt  
+pracka på grannarna ditt värdelösa liv och göra  
+vårt liv än mer värdelöst. Det räcker väl för fan  
+med allt det värdelösa som redan är. Sköt din egen  
+skit. Ät din egen skit. Det får ju vi göra. Låt oss  
+för fan i helvetes jävlar oss vara ifred med våra  
+mediokra jävla skitliv. 
 
 
 A   
