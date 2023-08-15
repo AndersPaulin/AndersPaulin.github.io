@@ -39,7 +39,7 @@ A
 Jag måste få in mer pengar. Måste. Vi måste få   
 in mer pengar. Måste. Mera pengar. Mer. Det är   
 pengarna som tickar fram egen död. Räkningarna   
-som dunsar ner på hallmattan som seriella kata-  
+som dunsar ner på hallmattan som seriella kata-   
 strofer som inte upphör.  
 
 
@@ -56,24 +56,43 @@ för fan i helvetes jävlar oss vara ifred med våra
 mediokra jävla skitliv.  
 
 
+A     
+Ser på tv. Jag äcklas, står inte ut med att lyssna   
+på dess ideologiska propaganda. Vill pissa i varje   
+käft som upprepar den där välorganiserade klasshats-   
+politiken. Överallt en massa jävla maskeradteve.   
+Vilka värdelösa idioter förmår sig själv att titta   
+på detta. Svar: Icke läskunniga nollor, som endast   
+klarar av att aplikt och pavlovskt svara på den mest   
+simplistiska bildregim. Att döma av tittarsiffror och   
+medial uppmärksamhet en majoritet av befolkningen. De   
+borde bestraffas med stålstänger på något analt vis. 
+
+
+B    
+Boken som inte finns, som är omöjlig. Det är varje   
+författares dröm. 
+
+
+D  
+Jag måste tjäna mer pengar. Om vi ska kunna bo kvar   
+i den här undermåliga skitlägenheten, så måste jag   
+få in mer pengar. 
+
+
+C   
+Kökskranen droppar. Badkarskranen droppar. Toalett-  
+kranen droppar. Köksfäkten susar skevt, för mycket,   
+liksom plågat, trots att den är avstängd, och fun-   
+gerar mycket dåligt när de slås på. 
+
+
 A   
-Ser på tv. Jag äcklas, står inte ut med att lyssna på dess ideologiska propaganda. Vill pissa i varje käft som upprepar den där välorganiserade klasshatspolitiken. Överallt en massa jävla maskeradteve. Vilka värdelösa idioter förmår sig själv att titta på detta. Svar: Icke läskunniga nollor, som endast klarar av att aplikt och pavlovskt svara på den mest simplistiska bildregim. Att döma av tittarsiffror och medial uppmärksamhet en majoritet av befolkningen. De borde bestraffas med stålstänger på något analt vis. 
+Att leva är omöjligt.   
 
 
-B   
-Boken som inte finns, som är omöjlig. Det är varje författares dröm. 
+* * 
 
-
-D 
-Jag måste tjäna mer pengar. Om vi ska kunna bo kvar i den här undermåliga skitlägenheten, så måste jag få in mer pengar. 
-
-C 
-Kökskranen droppar. Badkarskranen droppar. Toalett-kranen droppar. Köksfäkten susar skevt, för mycket, liksom plågat, trots att den är avstängd, och fungerar mycket dåligt när de slås på. 
-
-A 
-Att leva är omöjligt. 
-
-* * *
 
 A 
 Jag minns boken. Boken minns inte mig 
