@@ -154,7 +154,7 @@ I lägenheten, hemma, långt borta från min klass.
 B  
 Boken erbjuder ingen lättnad, ingen förståelse.  
  
-D 
+D  
 Alltså. De ser fan parodiskt medelklasslöjliga ut i  
 sina jävla kläder. Fattar de inte hur fan de klär  
 sig? De ser ju för fan ut som ett jävla skämt. Som  
