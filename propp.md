@@ -310,7 +310,7 @@ D
 *Det är ju för fan hela jävla tiden.*  
 
 
-A 
+A  
 *Det är ju för fan mer än hela jävla tiden. Det är  
 obegripligt mer än all jävla tid som finns.*  
 
@@ -336,7 +336,7 @@ C
 *Och så slutar det aldrig. Skiten är utan slut.*  
 
 
-D 
+D  
 *Gud om man ändå fick sova... länge, länge, länge...   
 och sen vakna upp till nåt helt annat än den vanliga  
 jävla skiten som när man gick och la sig... Men nu  
@@ -351,25 +351,20 @@ väser slemlikt till en: Vakna, vakna – det är dags
 att dö, värdelösa jävla skitidiotnolla.* 
 
 
-*  * 
+ *  * 
 
 
-
-
-
-
-
-
-C 
-Natt, tät natt. Ett disigt duggregn faller som en stilla 
-slöja i mörkret. 
-En bil passerar förbi, gör en sväng, dess lyktor lyser hastigt och fläckvis upp en del av ett överväxt köpcenrum, en gammal mataffär, tycks det, till stor del täckt av evolutionär mossa, och försvinner så bort. 
+C  
+Natt, tät natt. Ett disigt duggregn faller som en stilla  
+slöja i mörkret.  
+En bil passerar förbi, gör en sväng, dess lyktor lyser hastigt och fläckvis upp en del av ett överväxt köpcenrum, en gammal mataffär, tycks det, till stor del täckt av evolutionär mossa, och försvinner så bort.  
 Inne i den mer hoprasade än intakta byggnaden har en flock apor tillfälligt sökt skydd från det ihärdiga duggregnandet, som snarare liknar en ihållande atmosfär än en övergående väderlek. Några apor tar sig på måfå runt i byggnaden, mellan deformerade kundvagnar, dammiga längor med kyldiskar, rasade hyllor, bråte, bråte, på håglös jakt efter något ätbart, men allt sånt är sen länge borta, redan uppätet av andra djur och insekter. Apfocken är tyst. Som om de är trötta utmattade, rådvilla. Regnet hörs inte. Bara dropp. 
+
 
 När jag vaknar på morgonen, tidigt, vid kvart i fem, minns jag drömmen för något ögonblick, samtidigt som jag, sittande på sängkanten, stirrar på mina underarmar i dunklet. Så håriga, tänker jag. Sen minns jag ingenting av drömmen längre. 
 
 
-* * *
+ *  * 
 
 
 
