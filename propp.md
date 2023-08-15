@@ -202,11 +202,11 @@ Boken är skulpturer av sand och vind i öknen.
 
 A  
 All denna konst och litteratur som liberalistiska  
-verkställande utskott, nyttig idioti. Att inte  
-förfalla till någon inbillat och påbjudet "god"  
-handling för att ge det egna livet lite mening.  
-Det som är möjligt är löjligt; klassförräderi,  
-ytterligare cementering. 
+verkställande utskott, nyttig idioti. Att inte för-  
+falla till någon inbillat och påbjudet "god" hand-  
+ling för att ge det egna livet lite mening. Det som  
+är möjligt är löjligt; klassförräderi, ytterligare  
+cementering. 
 
 
 D  
