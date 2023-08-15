@@ -122,7 +122,7 @@ Jag tillhör den del av mänskligheten som slickar och äter
 också blödande kvinnor. 
 
 
-D 
+D  
 Duggregnet som ett glest dis ner mellan träden, gren-  
 verken, de vagt ryttlande bladen; sugs upp av mossan;  
 filtreras så, neråt, långsamt, långsamt; rinner in, som  
@@ -143,19 +143,22 @@ Boken. Istället för författarens och läsarens mediokra liv.
 C 
 I lägenheten, hemma, långt borta från min klass. 
 
-* * *
+
+*  *
 
 
-
-
-
-
-
-B 
-Boken erbjuder ingen lättnad, ingen förståelse. 
-
+B  
+Boken erbjuder ingen lättnad, ingen förståelse.  
+ 
 D 
-Alltså. De ser fan parodiskt medelklasslöjliga ut i sina jävla kläder. Fattar de inte hur fan de klär sig? De ser ju för fan ut som ett jävla skämt. Som nån debil jävla medelklassmimikry, fast de inte fattar det. Eller hur fan i helvete tänker de? Det är fan provocerande osmakligt med den där kombinationen av pervers brist på själv-förståelse samtidigt med en babianaktig självsäkerhet. 
+Alltså. De ser fan parodiskt medelklasslöjliga ut i sina  
+jävla kläder. Fattar de inte hur fan de klär sig? De ser  
+ju för fan ut som ett jävla skämt. Som nån debil jävla  
+medelklassmimikry, fast de inte fattar det. Eller hur fan  
+i helvete tänker de? Det är fan provocerande osmakligt med  
+den där kombinationen av pervers brist på självförståelse  
+samtidigt med en babianaktig självsäkerhet. 
+
 
 B
 Boken ingår i klasskampen, i dess samtliga riktningar. 
