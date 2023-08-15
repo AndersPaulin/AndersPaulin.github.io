@@ -194,29 +194,26 @@ Bokens kärlek är likgiltig och kan lika gärna tas i
 bruk av din fiende. 
 
 
-* * *
+*  *
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-C 
+C  
 Boken är skulpturer av sand och vind i öknen. 
 
-A 
-All denna konst och litteratur som liberalistiska verkställande utskott, nyttig idioti. Att inte förfalla till någon inbillat och påbjudet "god" handling för att ge det egna livet lite mening. Det som är möjligt är löjligt; klassförräderi,ytterligare cementering. 
 
-D 
-Igen. Ja. Igen. Ja: Att den som använder rutpigavdrags-städerska hemma våldtas analt med svabbskaftet. Kollektivt och tyst. 
+A  
+All denna konst och litteratur som liberalistiska  
+verkställande utskott, nyttig idioti. Att inte  
+förfalla till någon inbillat och påbjudet "god"  
+handling för att ge det egna livet lite mening.  
+Det som är möjligt är löjligt; klassförräderi,  
+ytterligare cementering. 
+
+
+D  
+Igen. Ja. Igen. Ja: Att den som använder rutpig-  
+avdragsstäderska hemma våldtas analt med svabb-  
+skaftet. Kollektivt och tyst. 
+
 
 C 
 Språkets performativa krafter gäller i vår typ av samhälle blott och endast för redan liberalistiska-kapitalistiska dygder; Homo liberalis som i en omni-present semiotisk kapitalism oavlåtligt påbjuds möjlig-het att reproducera sig själv och de sina och det nära egna och därför ängsligt, censurerar och framför allt självcensurerar så mycket samtida tal och språk. 
