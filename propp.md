@@ -60,31 +60,32 @@ A
 Ser på tv. Jag äcklas, står inte ut med att lyssna   
 på dess ideologiska propaganda. Vill pissa i varje   
 käft som upprepar den där välorganiserade klass-   
-hatspolitiken. Överallt en massa jävla maskeradteve.   
-Vilka värdelösa idioter förmår sig själv att titta på   
-detta. Svar: Icke läskunniga nollor, som endast klarar   
-av att aplikt och pavlovskt svara på den mest simpli-   
-stiska bildregim. Att döma av tittarsiffror och medial   
-uppmärksamhet en majoritet av befolkningen. De   
-borde bestraffas med stålstänger på något analt vis. 
+hatspolitiken. Överallt en massa jävla maskerad-  
+teve. Vilka värdelösa idioter förmår sig själv att  
+titta på detta. Svar: Icke läskunniga nollor, som  
+endast klarar av att aplikt och pavlovskt svara på  
+den mest simplistiska bildregim. Att döma av tittar-  
+siffror och medial uppmärksamhet en majoritet av   
+befolkningen. De borde bestraffas med stålstänger  
+på något analt vis. 
 
 
 B    
-Boken som inte finns, som är omöjlig. Det är varje   
-författares dröm. 
+Boken som inte finns, som är omöjlig. Det är  
+varje författares dröm. 
 
 
 D  
-Jag måste tjäna mer pengar. Om vi ska kunna bo kvar   
-i den här undermåliga skitlägenheten, så måste jag   
-få in mer pengar. 
+Jag måste tjäna mer pengar. Om vi ska kunna bo  
+kvar i den här undermåliga skitlägenheten, så  
+måste jag få in mer pengar. 
 
 
 C   
-Kökskranen droppar. Badkarskranen droppar. Toalett-  
-kranen droppar. Köksfäkten susar skevt, för mycket,   
-liksom plågat, trots att den är avstängd, och fungerar   
-mycket dåligt när de slås på. 
+Kökskranen droppar. Badkarskranen droppar. Toa-  
+lettkranen droppar. Köksfäkten susar skevt, för  
+mycket,   liksom plågat, trots att den är av-  
+stängd, och fungerar mycket dåligt när de slås på. 
 
 
 A   
