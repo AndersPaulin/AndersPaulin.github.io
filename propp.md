@@ -216,7 +216,14 @@ skaftet. Kollektivt och tyst.
 
 
 C 
-Språkets performativa krafter gäller i vår typ av samhälle blott och endast för redan liberalistiska-kapitalistiska dygder; Homo liberalis som i en omni-present semiotisk kapitalism oavlåtligt påbjuds möjlig-het att reproducera sig själv och de sina och det nära egna och därför ängsligt, censurerar och framför allt självcensurerar så mycket samtida tal och språk. 
+Språkets performativa krafter gäller i vår typ av  
+samhälle blott och endast för redan liberalistiska-  
+kapitalistiska dygder; Homo liberalis som i en omni-  
+present semiotisk kapitalism oavlåtligt påbjuds möj-  
+lighet att reproducera sig själv och de sina och det   
+nära egna och därför ängsligt, censurerar och framför  
+allt självcensurerar så mycket samtida tal och språk. 
+
 
 A 
 Bokens ömhet tar aldrig slut, ty dess väsen är vanmakt. 
