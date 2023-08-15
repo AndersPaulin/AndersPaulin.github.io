@@ -105,8 +105,11 @@ livsföring. Att det diskvalificerar mina ords erfarenhet.
 Jag vet inte. 
 
 
-A 
-Går in i tvättstugan. Det autosensoriska ljuset tänds inte, trots att jag rör mig som en vanlig, levande människa, drar tvättvagn, stoppar i tvätt i maskinerna, fyller på tvättmedel. Men inget ljus tänds. Efter nån minut kommer en granne. Då tänds lysrören. 
+A  
+Går in i tvättstugan. Det autosensoriska ljuset tänds  
+inte, trots att jag rör mig som en vanlig, levande männi-  
+ska, drar tvättvagn, stoppar i tvätt i maskinerna, fyller  
+på tvättmedel. Men inget ljus tänds. Efter nån minut kommer en granne. Då tänds lysrören. 
 
 A 
 Boken är utan annan idé. Det är idéerna som behöver boken. 
