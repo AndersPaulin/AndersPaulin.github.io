@@ -31,3 +31,406 @@ Det skulle glädja mig väldigt mycket om du tycker att det här låter intressa
 Varma hälsningar
 Anders Paulin 
 
+****************************
+
+(utdrag ur *ProponeisiS* 2021)
+
+A   
+Jag måste få in mer pengar. Måste. Vi måste få in mer pengar. Måste. Mera pengar. Mer. Det är pengarna som tickar fram egen död. Räkningarna som dunsar ner på hallmattan som seriella katastrofer som inte upphör. 
+
+
+C   
+Var och varannan granne idiot och psykfall. Kan de inte bara dö eller flytta, vräkas. Du har ett värdelöst liv, okej, originellt. Välkommen i klubben. Men måste du prompt och tvångsmässigt pracka på grannarna ditt värdelösa liv och göra vårt liv än mer värdelöst. Det räcker väl för fan med allt det värdelösa som redan är. Sköt din egen skit. Ät din egen skit. Det får ju vi göra. Låt oss för fan i helvetes jävlar oss vara ifred med våra mediokra jävla skitliv. 
+
+
+A   
+Ser på tv. Jag äcklas, står inte ut med att lyssna på dess ideologiska propaganda. Vill pissa i varje käft som upprepar den där välorganiserade klasshatspolitiken. Överallt en massa jävla maskeradteve. Vilka värdelösa idioter förmår sig själv att titta på detta. Svar: Icke läskunniga nollor, som endast klarar av att aplikt och pavlovskt svara på den mest simplistiska bildregim. Att döma av tittarsiffror och medial uppmärksamhet en majoritet av befolkningen. De borde bestraffas med stålstänger på något analt vis. 
+
+
+B   
+Boken som inte finns, som är omöjlig. Det är varje författares dröm. 
+
+
+D 
+Jag måste tjäna mer pengar. Om vi ska kunna bo kvar i den här undermåliga skitlägenheten, så måste jag få in mer pengar. 
+
+C 
+Kökskranen droppar. Badkarskranen droppar. Toalett-kranen droppar. Köksfäkten susar skevt, för mycket, liksom plågat, trots att den är avstängd, och fungerar mycket dåligt när de slås på. 
+
+A 
+Att leva är omöjligt. 
+
+* * *
+
+A 
+Jag minns boken. Boken minns inte mig 
+
+B 
+Jag vet inte. Jag vet inte. Min numera traditionellt borgerliga och högst mediokra men någorlunda bekväma livsföring. Att det diskvalificerar mina ords erfarenhet. Jag vet inte. 
+
+A 
+Går in i tvättstugan. Det autosensoriska ljuset tänds inte, trots att jag rör mig som en vanlig, levande människa, drar tvättvagn, stoppar i tvätt i maskinerna, fyller på tvättmedel. Men inget ljus tänds. Efter nån minut kommer en granne. Då tänds lysrören. 
+
+A 
+Boken är utan annan idé. Det är idéerna som behöver boken. 
+
+C 
+Jag tillhör den del av mänskligheten som slickar och äter också blödande kvinnor. 
+
+D 
+Duggregnet som ett glest dis ner mellan träden, gren-verken, de vagt ryttlande bladen; sugs upp av mossan; filtreras så, neråt, långsamt, långsamt; rinner in, som avlånga, silvriga skuggningar, i lingonmarken. 
+
+A 
+Kökskranen droppar. Kranen på toaletten droppar. Duschmunstycket droppar rinnigt. Det tickar inifrån lägenheten. Det tickar. Tickar. 
+
+C 
+Hemma, i lägenheten, dit räkningarna kommer. 
+
+B 
+Boken. Istället för författarens och läsarens mediokra liv. 
+
+C 
+I lägenheten, hemma, långt borta från min klass. 
+
+* * *
+
+
+
+
+
+
+
+B 
+Boken erbjuder ingen lättnad, ingen förståelse. 
+
+D 
+Alltså. De ser fan parodiskt medelklasslöjliga ut i sina jävla kläder. Fattar de inte hur fan de klär sig? De ser ju för fan ut som ett jävla skämt. Som nån debil jävla medelklassmimikry, fast de inte fattar det. Eller hur fan i helvete tänker de? Det är fan provocerande osmakligt med den där kombinationen av pervers brist på själv-förståelse samtidigt med en babianaktig självsäkerhet. 
+
+B
+Boken ingår i klasskampen, i dess samtliga riktningar. 
+
+C 
+Klassfienderna vill igen och igen ha oss på skitjobb med så inihelvete låg lön att det är helt jävla omöjligt att försörja sig på den. De vill att vi ska jobba ihjäl oss, helst i servila servicefunktioner, åt dem. På löje-väckande skitjobb, åt dem. De där vidriga jävla homo liberalisäcklen. 
+
+D 
+Boken som undantagets andetag.
+
+B 
+Jag vet inte. Jag är, om än full av dess erfarenhet och minne, helt borta från min klass. Jag är fullständigt negligerad av min klass. Det är en form av död, det går inte att komma ifrån. 
+
+D 
+Bokens kärlek är likgiltig och kan lika gärna tas i bruk av din fiende. 
+
+* * *
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+C 
+Boken är skulpturer av sand och vind i öknen. 
+
+A 
+All denna konst och litteratur som liberalistiska verkställande utskott, nyttig idioti. Att inte förfalla till någon inbillat och påbjudet "god" handling för att ge det egna livet lite mening. Det som är möjligt är löjligt; klassförräderi,ytterligare cementering. 
+
+D 
+Igen. Ja. Igen. Ja: Att den som använder rutpigavdrags-städerska hemma våldtas analt med svabbskaftet. Kollektivt och tyst. 
+
+C 
+Språkets performativa krafter gäller i vår typ av samhälle blott och endast för redan liberalistiska-kapitalistiska dygder; Homo liberalis som i en omni-present semiotisk kapitalism oavlåtligt påbjuds möjlig-het att reproducera sig själv och de sina och det nära egna och därför ängsligt, censurerar och framför allt självcensurerar så mycket samtida tal och språk. 
+
+A 
+Bokens ömhet tar aldrig slut, ty dess väsen är vanmakt. 
+
+C 
+Alla dessa tecken på tecken på tecken som aldrig blir realiserade; tomma löften, potentialitetslögnens ideo-logisering. Jag vet inte. Nej. Nej. Jag vet inte. 
+
+B 
+Alla dessa små, högljudda vänsterkapitalistiska enkla-ver. Vad annat skulle de aktivistiska subjekten kunna vara? Vad annat också jag? 
+
+D 
+Boken som den orepresenterbara boken, med dess vita sömn, i snö, i snö. 
+
+* * *
+
+
+
+
+
+
+A 
+Va... Alltså... Jag vet inte. Det är... 
+
+D 
+Jag vet inte, men. Alltså... 
+
+C 
+Det är svårt.
+
+B 
+Så ini helvete svårt. Jag tror kanske det är omöjligt. 
+
+A 
+Mer än omöjligt. Som en jävla... Jag vet inte. 
+
+D 
+Det är som en jävla sörja bara, av helt jävla omöjligt och... Och en massa jävla skit och kompletta jävla idioter. All jävla idioti. Proppat med skit bara. Helt värdelös jävla skit. Fy fan så jävla mycket skit. Bara så ini helvete med skit och värdelös jävla skit bara. 
+
+B 
+Vad fan tror dom egentligen. Vad är det för jävla skit dom håller på med. Va. Vad är det för värdelös jävla avföringsskit. Va. Vad är det för jävla diarré. Va. Vad är det för jävla lösskitsdiarré som skits ut hela jävla tiden som en jävla lösskitsdiarré som bara sprutar ut genom  anus och kukanus och alla löjliga jävla rövknullsskithål 
+som bara spricker upp överallt som en jävla... Man blir ju för fan helt jävla nerskitad av sån värdelös jävla lös-skit själv också. Fan täckt av skit och avföringsskit och lösskit... som en jävla vaniljglass doppad i choklad fast av skit och skit och skit som också sprutar in genom alla uppknullade jävla kroppsöppningar man har på sin egen jävla kropp. Sin egen jävla missfosterkropp. Sitt eget jävla missfoster som man går omkring och bär på hela jävla dagarna och sover i om nätterna... 
+
+C 
+...om man nu kan sova när man har en löjlig jävla hjärna som fan i mig verkar guppa omkring i en dypöl av lösskit däruppe i kukhuvudet och som man aldrig kommer åt. En jävla diarrékukhjärna. 
+
+D 
+Det är ju för fan hela jävla tiden.
+
+A 
+Det är ju för fan mer än hela jävla tiden. Det är obegripligt mer än all jävla tid som finns. 
+
+D 
+Det ska bara lägga av. Lägg av för fan. Sluta för helvete. 
+
+C 
+Men det gör ju aldrig det. Man dör ju själv först.
+
+A 
+Långt före.
+
+B 
+Det är fan som att man föds död. 
+
+C
+Och så slutar det aldrig. Skiten är utan slut. 
+
+D 
+Gud om man ändå fick sova... länge, länge, länge... och sen vakna upp till nåt helt annat än den vanliga jävla skiten som när man gick och la sig... Men nu är det ju för fan tvärtom. 
+
+B 
+Man blir helt plötsligt bara... utan nåt minne egentli-gen, av att ha levt... väckt av nån jävla kukbillig slaskfittig jävla kukslemsidiotröst som viskar och väser slemlikt till en: Vakna, vakna – det är dags att dö, värdelösa jävla skitidiotnolla. 
+
+* * *
+
+
+
+
+
+
+
+
+C 
+Natt, tät natt. Ett disigt duggregn faller som en stilla 
+slöja i mörkret. 
+En bil passerar förbi, gör en sväng, dess lyktor lyser hastigt och fläckvis upp en del av ett överväxt köpcenrum, en gammal mataffär, tycks det, till stor del täckt av evolutionär mossa, och försvinner så bort. 
+Inne i den mer hoprasade än intakta byggnaden har en flock apor tillfälligt sökt skydd från det ihärdiga duggregnandet, som snarare liknar en ihållande atmosfär än en övergående väderlek. Några apor tar sig på måfå runt i byggnaden, mellan deformerade kundvagnar, dammiga längor med kyldiskar, rasade hyllor, bråte, bråte, på håglös jakt efter något ätbart, men allt sånt är sen länge borta, redan uppätet av andra djur och insekter. Apfocken är tyst. Som om de är trötta utmattade, rådvilla. Regnet hörs inte. Bara dropp. 
+
+När jag vaknar på morgonen, tidigt, vid kvart i fem, minns jag drömmen för något ögonblick, samtidigt som jag, sittande på sängkanten, stirrar på mina underarmar i dunklet. Så håriga, tänker jag. Sen minns jag ingenting av drömmen längre. 
+
+
+* * *
+
+
+
+
+
+B 
+regnet faller 
+och faller 
+som 
+inga tårar kan 
+
+
+
+
+
+* * *
+
+
+
+
+
+
+
+
+
+C
+JAG DRÖMDE 	 om en film 	  jag inte hade sett 	den avbildade 	   en gammal person en mycket gammal person       man eller kvinna jag vet inte     ensam i en liten lägenhet       gör sina vardagliga sysslor      mycket långsamt o- verkligt naturalistiskt långsamt      tar sig ur sängen      klär sig      går på toaletten     äter sittter i fåtölj      tittar på tv      dagsprogrammen allt med befintligt ljud    tung andning    has-anden       smackande       rosslingar     dova ljud      	från grannar gator rör               SÅ
+				        dör personen
+	plötsligt odramatiskt      slutar andas bara 	kanske efter en stilla infarkt     i fåtöljen
+                
+   och filmen fortsätter          ett par timmar till den döde saknas inte av någon      blir kvar som död i lägenheten      kanske ett halvår ett år tre år      
+  kameran panorerar den döde    ansiktet   den 	snett öppna munnen ögonen    går nära också ting i lägenheten möbler   väggar   så småningom insekter   blomfugor    flugor svirr-aktiga svärmar      i solljus som födar in    torrt genom fönster      dova ljud utifrån       damm  som ansamlas   kroppen som torkar        samman 
+
+
+
+* * *
+
+
+ 
+
+D 
+Bergen, fjällen. De står resta som väldiga monoliter. Att uttala deras kartografiska namn sammanfattar ingenting av deras realitet. Namnet blåser bort i vinden som ett bortfört knott. Bergskedjans geologiska veckning vittnar för en kontinuitet av oerfarbart lång tid som föregår varje språks kosmologi, och kommer att förbli efter dess upphörande. Att föreställa sig att vandra upp för bergets sida är inte möjligt. Inte ens de till synes mest beskedliga av fjäll. Det skulle ta veckor, kroppens krafter skulle inte räcka till. / Vandringens dalgång en gång täckt av tjock is. Att föreställa sig detta massiv, dess inneslutna tid, dess årtusende efter årtusende av stillastående. Nej. Det förblir absolut abstrakt. Som om en mygga med två veckors livsspann utantill skulle lära sig en encyklopedi över homo sapiens totala historia. / 
+
+B 
+Allt detta utanför en själv, som inte tas någon hänsyn till här. Man är en tillfällig besökare i denna ekologi. Man är inte giltig, en perifer störning. Utan funktion. / 
+
+A 
+Och så kommer hastigt regn. Regn, regn. Det vräker ner, den starka blåsten driver det ställvis i sidled, som om det regnade horisontellt. Regnstället står inte emot längre, kyler ner den svettiga kroppen. Känslan av att vara naken. Regnet och blåsten piskar minsta välbefinnande ur kroppen. Misströstan att alls komma fram. Tröttheten som en feber. Mycket lätt att föreställa sig den egna liggande kroppen, bland tuvorna, gräset och ljungen, som bara långsamt sjunker in i marken, täcks av lera, försvinner, helt utan spår. Bara vandringskängorna och de syntetiska klädesplaggen kvar, som skräp, nedsmutsning. 
+
+
+* * *
+
+
+
+
+
+
+
+
+
+Torsdag 
+Ymnigt, ihärdigt snöfall
+som en malevitjskt
+passerande vit sal (utan slut)
+Tre, fyra minusgrader
+
+
+
+
+
+
+
+Mkt mkt trött 
+Som dödskamp utan död 
+och utan kamp, 
+bara blekvit feber 
+Ser på tv på kvällen 
+för att mobilisera klasshat 
+utan ände, utan utgång 
+
+
+
+
+
+
+* * *
+
+
+
+
+
+Lördag 
+Natt, måne, stilla
+stilla kyla
+Nollgradigt
+
+
+
+
+Står och röker på balkongen,
+full på Calvados 
+och uppnådd ensamhet 
+Föreställer mig att min begravning 
+i själva verket 
+var min födelse 
+och att min mor 
+var en sadistisk bödel 
+utsänd från mardrömmens 
+Sanningsministerium 
+Jag sluter ögonen, 
+försöker frammana minnen 
+av annat liv, 
+men fylleramlar 
+in i PET-faskorna i plastpåsar 
+som står där på balkongen 
+i ett dammigt hörn. 
+
+
+
+
+* * *
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+A
+Att ”människan” inte kan ha ”ett okränkbart värde”, som det brukar heta, när brösttonerna tas fram, eftersom att ha ett värde alltid och per definition innebär att vara till salu, om bara priset är det rätta. .Sak Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. sakdjf  Psykologi äcklar mig, som Duras sa. Livsstilsliberalismlitteraturen, som så hegemoniskt dominerar den svenska borgerligt litterära offentlig-heten, och kanske särskilt Dagens Nyheters numer explicit kulturkonsumentrådgivande kultursidor, har det som snart sagt enda ämne; just för att dramatisera, legitimera och affirmera den egna mer eller mindre mediokra livsföringen, strukturellt och inte sällan orättmätigt erhållen, vilket bortträngs till förmån för en orefekterat och liberalistiskt metafysisk och megalo-mant monumental narcissism för enskilda karaktärer, deras ytterst begränsade sociala gruppering, dess troper och språk. Att verkligen erfara och tänka, självreflexivt och kritiskt, med litteraturen, om littera-turen, blir i en livsstilsliberalismlitteraturregim en ano-mali, något perverst krävande. Sakdjf   
+
+
+B
+I drömmen är jag en redan genomförd hjärninfarkt i min egen hjärna. Huvudet fylls av grått, livslöst blod, som bara trögt och långsamt rinner ut genom öron, näsa och ögon. Ett lodjur står framför mig och slickar i sig vätskan. Det ser mig inte, lapar bara. Försvinner så, som i ett hoppklipp, in i skogen. Sakdjf 
+
+
+
+* * *
+
+
+
+
+
+
+
+
+
+
+
+
+
+litteraturen som 
+den privilegierade plats 
+dit de revolutionära begären 
+tar sin tillfykt 
+för 
+att få en borgerlig begravning 
+
+
+
+
+
+blankraden 
+vi vet inte 
+exakt 
+vad den är 
+vad den gör 
+
+
+
+
+
+klasskriget 
+i sverige 
+står nästan helt 
+utan gestaltning 
+
+
+
+
+
+jag tror 
+att 
+utan klasshat 
+skulle 
+mitt hjärta 
+inte 
+alls slå 
+
+
