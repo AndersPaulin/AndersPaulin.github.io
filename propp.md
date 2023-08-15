@@ -412,165 +412,118 @@ kroppen som torkar
 samman 
 
 
+ *  * 
 
-* * *
 
-
- 
-
-D 
+D  
 Bergen, fjällen. De står resta som väldiga monoliter. Att uttala deras kartografiska namn sammanfattar ingenting av deras realitet. Namnet blåser bort i vinden som ett bortfört knott. Bergskedjans geologiska veckning vittnar för en kontinuitet av oerfarbart lång tid som föregår varje språks kosmologi, och kommer att förbli efter dess upphörande. Att föreställa sig att vandra upp för bergets sida är inte möjligt. Inte ens de till synes mest beskedliga av fjäll. Det skulle ta veckor, kroppens krafter skulle inte räcka till. / Vandringens dalgång en gång täckt av tjock is. Att föreställa sig detta massiv, dess inneslutna tid, dess årtusende efter årtusende av stillastående. Nej. Det förblir absolut abstrakt. Som om en mygga med två veckors livsspann utantill skulle lära sig en encyklopedi över homo sapiens totala historia. / 
 
-B 
+
+B  
 Allt detta utanför en själv, som inte tas någon hänsyn till här. Man är en tillfällig besökare i denna ekologi. Man är inte giltig, en perifer störning. Utan funktion. / 
 
-A 
+
+A  
 Och så kommer hastigt regn. Regn, regn. Det vräker ner, den starka blåsten driver det ställvis i sidled, som om det regnade horisontellt. Regnstället står inte emot längre, kyler ner den svettiga kroppen. Känslan av att vara naken. Regnet och blåsten piskar minsta välbefinnande ur kroppen. Misströstan att alls komma fram. Tröttheten som en feber. Mycket lätt att föreställa sig den egna liggande kroppen, bland tuvorna, gräset och ljungen, som bara långsamt sjunker in i marken, täcks av lera, försvinner, helt utan spår. Bara vandringskängorna och de syntetiska klädesplaggen kvar, som skräp, nedsmutsning. 
 
 
-* * *
+ *  * 
 
 
+*Torsdag  
+Ymnigt, ihärdigt snöfall 
+som en malevitjskt 
+passerande vit sal (utan slut) 
+Tre, fyra minusgrader*  
 
 
+Mkt mkt trött  
+Som dödskamp utan död   
+och utan kamp,  
+bara blekvit feber  
+Ser på tv på kvällen  
+för att mobilisera klasshat  
+utan ände, utan utgång  
 
 
+ *  * 
 
 
-
-Torsdag 
-Ymnigt, ihärdigt snöfall
-som en malevitjskt
-passerande vit sal (utan slut)
-Tre, fyra minusgrader
-
-
-
-
-
-
-
-Mkt mkt trött 
-Som dödskamp utan död 
-och utan kamp, 
-bara blekvit feber 
-Ser på tv på kvällen 
-för att mobilisera klasshat 
-utan ände, utan utgång 
-
-
-
-
-
-
-* * *
-
-
-
-
-
-Lördag 
+*Lördag 
 Natt, måne, stilla
 stilla kyla
-Nollgradigt
+Nollgradigt*
 
 
+Står och röker på balkongen,  
+full på Calvados  
+och uppnådd ensamhet  
+Föreställer mig att min begravning  
+i själva verket  
+var min födelse  
+och att min mor  
+var en sadistisk bödel  
+utsänd från mardrömmens  
+Sanningsministerium  
+Jag sluter ögonen,  
+försöker frammana minnen  
+av annat liv,  
+men fylleramlar  
+in i PET-faskorna i plastpåsar  
+som står där på balkongen  
+i ett dammigt hörn.  
 
 
-Står och röker på balkongen,
-full på Calvados 
-och uppnådd ensamhet 
-Föreställer mig att min begravning 
-i själva verket 
-var min födelse 
-och att min mor 
-var en sadistisk bödel 
-utsänd från mardrömmens 
-Sanningsministerium 
-Jag sluter ögonen, 
-försöker frammana minnen 
-av annat liv, 
-men fylleramlar 
-in i PET-faskorna i plastpåsar 
-som står där på balkongen 
-i ett dammigt hörn. 
+ *  * 
 
 
+A  
+Att ”människan” inte kan ha ”ett okränkbart värde”, som det brukar heta, när brösttonerna tas fram, eftersom att ha ett värde alltid och per definition innebär att vara till salu, om bara priset är det rätta. - - - Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. - - - Psykologi äcklar mig, som Duras sa. Livsstilsliberalismlitteraturen, som så hegemoniskt dominerar den svenska borgerligt litterära offentligheten, och kanske särskilt Dagens Nyheters numer explicit kulturkonsumentrådgivande kultursidor, har det som snart sagt enda ämne; just för att dramatisera, legitimera och affirmera den egna mer eller mindre mediokra livsföringen, strukturellt och inte sällan orättmätigt erhållen, vilket bortträngs till förmån för en orefekterat och liberalistiskt metafysisk och megalomant monumental narcissism för enskilda karaktärer, deras ytterst begränsade sociala gruppering, dess troper och språk. Att verkligen erfara och tänka, självreflexivt och kritiskt, med litteraturen, om litteraturen, blir i en livsstilsliberalismlitteraturregim en anomali, något perverst krävande. - - - 
 
 
-* * *
+B  
+I drömmen är jag en redan genomförd hjärninfarkt i min egen hjärna. Huvudet fylls av grått, livslöst blod, som bara trögt och långsamt rinner ut genom öron, näsa och ögon. Ett lodjur står framför mig och slickar i sig vätskan. Det ser mig inte, lapar bara. Försvinner så, som i ett hoppklipp, in i skogen. - - -
 
 
- 
+ *  * 
 
 
-
-
-
-
-
-
-
-
-A
-Att ”människan” inte kan ha ”ett okränkbart värde”, som det brukar heta, när brösttonerna tas fram, eftersom att ha ett värde alltid och per definition innebär att vara till salu, om bara priset är det rätta. .Sak Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. sakdjf  Psykologi äcklar mig, som Duras sa. Livsstilsliberalismlitteraturen, som så hegemoniskt dominerar den svenska borgerligt litterära offentlig-heten, och kanske särskilt Dagens Nyheters numer explicit kulturkonsumentrådgivande kultursidor, har det som snart sagt enda ämne; just för att dramatisera, legitimera och affirmera den egna mer eller mindre mediokra livsföringen, strukturellt och inte sällan orättmätigt erhållen, vilket bortträngs till förmån för en orefekterat och liberalistiskt metafysisk och megalo-mant monumental narcissism för enskilda karaktärer, deras ytterst begränsade sociala gruppering, dess troper och språk. Att verkligen erfara och tänka, självreflexivt och kritiskt, med litteraturen, om littera-turen, blir i en livsstilsliberalismlitteraturregim en ano-mali, något perverst krävande. Sakdjf   
-
-
-B
-I drömmen är jag en redan genomförd hjärninfarkt i min egen hjärna. Huvudet fylls av grått, livslöst blod, som bara trögt och långsamt rinner ut genom öron, näsa och ögon. Ett lodjur står framför mig och slickar i sig vätskan. Det ser mig inte, lapar bara. Försvinner så, som i ett hoppklipp, in i skogen. Sakdjf 
-
-
-
-* * *
+litteraturen som  
+den privilegierade plats  
+dit de revolutionära begären  
+tar sin tillfykt  
+för  
+att få en borgerlig begravning  
 
 
 
 
 
+blankraden  
+vi vet inte  
+exakt  
+vad den är  
+vad den gör  
 
 
 
 
 
-
-
-
-litteraturen som 
-den privilegierade plats 
-dit de revolutionära begären 
-tar sin tillfykt 
-för 
-att få en borgerlig begravning 
+klasskriget  
+i sverige  
+står nästan helt  
+utan gestaltning  
 
 
 
 
 
-blankraden 
-vi vet inte 
-exakt 
-vad den är 
-vad den gör 
-
-
-
-
-
-klasskriget 
-i sverige 
-står nästan helt 
-utan gestaltning 
-
-
-
-
-
-jag tror 
-att 
-utan klasshat 
-skulle 
-mitt hjärta 
-inte 
-alls slå 
+jag tror  
+att  
+utan klasshat  
+skulle  
+mitt hjärta  
+inte  
+alls slå  
 
 
