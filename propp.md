@@ -160,9 +160,9 @@ sina jävla kläder. Fattar de inte hur fan de klär sig?
 De ser ju för fan ut som ett jävla skämt. Som nån  
 debil jävla medelklassmimikry, fast de inte fattar  
 det. Eller hur fan i helvete tänker de? Det är fan  
-provocerande osmakligt med  den där kombinationen  
-av pervers brist på självförståelse samtidigt med  
-en babianaktig självsäkerhet. 
+provocerande osmakligt med  den där kombina-  
+tionen av pervers brist på självförståelse samtidigt  
+med en babianaktig självsäkerhet. 
 
 
 B  
