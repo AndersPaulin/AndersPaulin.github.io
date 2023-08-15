@@ -135,13 +135,16 @@ Kökskranen droppar. Kranen på toaletten droppar. Dusch-
 munstycket droppar rinnigt. Det tickar inifrån lägenheten.  
 Det tickar. Tickar. 
 
-C 
+
+C  
 Hemma, i lägenheten, dit räkningarna kommer. 
 
-B 
+
+B   
 Boken. Istället för författarens och läsarens mediokra liv. 
 
-C 
+
+C  
 I lägenheten, hemma, långt borta från min klass. 
 
 
@@ -152,29 +155,44 @@ B
 Boken erbjuder ingen lättnad, ingen förståelse.  
  
 D 
-Alltså. De ser fan parodiskt medelklasslöjliga ut i sina  
-jävla kläder. Fattar de inte hur fan de klär sig? De ser  
-ju för fan ut som ett jävla skämt. Som nån debil jävla  
-medelklassmimikry, fast de inte fattar det. Eller hur fan  
-i helvete tänker de? Det är fan provocerande osmakligt med  
-den där kombinationen av pervers brist på självförståelse  
-samtidigt med en babianaktig självsäkerhet. 
+Alltså. De ser fan parodiskt medelklasslöjliga ut i  
+sina jävla kläder. Fattar de inte hur fan de klär  
+sig? De ser ju för fan ut som ett jävla skämt. Som  
+nån debil jävla medelklassmimikry, fast de inte fattar  
+det. Eller hur fan i helvete tänker de? Det är fan  
+provocerande osmakligt med  den där kombinationen av  
+pervers brist på självförståelse samtidigt med en  
+babianaktig självsäkerhet. 
 
 
-B
+B  
 Boken ingår i klasskampen, i dess samtliga riktningar. 
 
-C 
-Klassfienderna vill igen och igen ha oss på skitjobb med så inihelvete låg lön att det är helt jävla omöjligt att försörja sig på den. De vill att vi ska jobba ihjäl oss, helst i servila servicefunktioner, åt dem. På löje-väckande skitjobb, åt dem. De där vidriga jävla homo liberalisäcklen. 
 
-D 
+C  
+Klassfienderna vill igen och igen ha oss på skitjobb  
+med så inihelvete låg lön att det är helt jävla omöjligt  
+att försörja sig på den. De vill att vi ska jobba ihjäl  
+oss, helst i servila servicefunktioner, åt dem. På löje-  
+väckande skitjobb, åt dem. De där vidriga jävla homo  
+liberalisäcklen. 
+
+
+D  
 Boken som undantagets andetag.
 
-B 
-Jag vet inte. Jag är, om än full av dess erfarenhet och minne, helt borta från min klass. Jag är fullständigt negligerad av min klass. Det är en form av död, det går inte att komma ifrån. 
 
-D 
-Bokens kärlek är likgiltig och kan lika gärna tas i bruk av din fiende. 
+B 
+Jag vet inte. Jag är, om än full av dess erfarenhet och  
+minne, helt borta från min klass. Jag är fullständigt  
+negligerad av min klass. Det är en form av död, det går  
+inte att komma ifrån. 
+
+
+D  
+Bokens kärlek är likgiltig och kan lika gärna tas i  
+bruk av din fiende. 
+
 
 * * *
 
