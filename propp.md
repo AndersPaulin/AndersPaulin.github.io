@@ -99,9 +99,9 @@ Jag minns boken. Boken minns inte mig
 
 
 B   
-Jag vet inte. Jag vet inte. Min numera traditionellt borg-   
-erliga och högst mediokra men någorlunda be-   
-kväma livsföring. Att det diskvalificerar mina ords erfarenhet.   
+Jag vet inte. Jag vet inte. Min numera traditionellt bor-   
+gerliga och högst mediokra men någorlunda bekväma livs-   
+föring. Att det diskvalificerar mina ords erfarenhet.   
 Jag vet inte. 
 
 
