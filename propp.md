@@ -431,9 +431,9 @@ Och så kommer hastigt regn. Regn, regn. Det vräker ner, den starka blåsten
 
 
 *Torsdag  
-Ymnigt, ihärdigt snöfall 
-som en malevitjskt 
-passerande vit sal (utan slut) 
+Ymnigt, ihärdigt snöfall   
+som en malevitjskt  
+passerande vit sal (utan slut)  
 Tre, fyra minusgrader*  
 
 
