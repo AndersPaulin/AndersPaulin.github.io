@@ -84,8 +84,8 @@ måste jag få in mer pengar.
 C   
 Kökskranen droppar. Badkarskranen droppar. Toa-  
 lettkranen droppar. Köksfäkten susar skevt, för  
-mycket,   liksom plågat, trots att den är av-  
-stängd, och fungerar mycket dåligt när de slås på. 
+mycket, liksom plågat, trots att den är avstängd,  
+och fungerar mycket dåligt när de slås på.  
 
 
 A   
@@ -100,10 +100,10 @@ Jag minns boken. Boken minns inte mig
 
 
 B   
-Jag vet inte. Jag vet inte. Min numera traditionellt bor-   
-gerliga och högst mediokra men någorlunda bekväma  
-livsföring. Att det diskvalificerar mina ords erfarenhet.  
-Jag vet inte. 
+Jag vet inte. Jag vet inte. Min numera traditionellt  
+borgerliga och högst mediokra men någorlunda bekväma  
+livsföring. Att det diskvalificerar mina ords er-  
+farenhet. Jag vet inte. 
 
 
 A  
