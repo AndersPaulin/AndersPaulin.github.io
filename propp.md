@@ -110,8 +110,8 @@ A
 Går in i tvättstugan. Det autosensoriska ljuset tänds  
 inte, trots att jag rör mig som en vanlig, levande männi-  
 ska, drar tvättvagn, stoppar i tvätt i maskinerna, fyller  
-på tvättmedel. Men inget ljus tänds. Efter nån minut kommer  
-en granne. Då tänds lysrören. 
+på tvättmedel. Men inget ljus tänds. Efter nån minut  
+kommer en granne. Då tänds lysrören. 
 
 
 A  
