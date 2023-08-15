@@ -183,10 +183,10 @@ Boken som undantagets andetag.
 
 
 B 
-Jag vet inte. Jag är, om än full av dess erfarenhet och  
-minne, helt borta från min klass. Jag är fullständigt  
-negligerad av min klass. Det är en form av död, det går  
-inte att komma ifrån. 
+Jag vet inte. Jag är, om än full av dess erfarenhet  
+och minne, helt borta från min klass. Jag är full-  
+ständigt negligerad av min klass. Det är en form av  
+död, det går inte att komma ifrån. 
 
 
 D  
