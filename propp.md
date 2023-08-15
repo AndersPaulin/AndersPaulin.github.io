@@ -109,19 +109,30 @@ A
 Går in i tvättstugan. Det autosensoriska ljuset tänds  
 inte, trots att jag rör mig som en vanlig, levande männi-  
 ska, drar tvättvagn, stoppar i tvätt i maskinerna, fyller  
-på tvättmedel. Men inget ljus tänds. Efter nån minut kommer en granne. Då tänds lysrören. 
+på tvättmedel. Men inget ljus tänds. Efter nån minut kommer  
+en granne. Då tänds lysrören. 
 
-A 
-Boken är utan annan idé. Det är idéerna som behöver boken. 
 
-C 
-Jag tillhör den del av mänskligheten som slickar och äter också blödande kvinnor. 
+A  
+Boken är utan annan idé. Det är idéerna som behöver boken.  
+
+
+C  
+Jag tillhör den del av mänskligheten som slickar och äter  
+också blödande kvinnor. 
+
 
 D 
-Duggregnet som ett glest dis ner mellan träden, gren-verken, de vagt ryttlande bladen; sugs upp av mossan; filtreras så, neråt, långsamt, långsamt; rinner in, som avlånga, silvriga skuggningar, i lingonmarken. 
+Duggregnet som ett glest dis ner mellan träden, gren-  
+verken, de vagt ryttlande bladen; sugs upp av mossan;  
+filtreras så, neråt, långsamt, långsamt; rinner in, som  
+avlånga, silvriga skuggningar, i lingonmarken. 
 
-A 
-Kökskranen droppar. Kranen på toaletten droppar. Duschmunstycket droppar rinnigt. Det tickar inifrån lägenheten. Det tickar. Tickar. 
+
+A  
+Kökskranen droppar. Kranen på toaletten droppar. Dusch-  
+munstycket droppar rinnigt. Det tickar inifrån lägenheten.  
+Det tickar. Tickar. 
 
 C 
 Hemma, i lägenheten, dit räkningarna kommer. 
