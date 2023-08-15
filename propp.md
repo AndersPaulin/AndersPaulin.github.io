@@ -211,8 +211,8 @@ cementering.
 
 D  
 Igen. Ja. Igen. Ja: Att den som använder rutpigav-  
-dragsstäderska hemma våldtas analt med svabbskaftet.  
-Kollektivt och tyst. 
+dragsstäderska hemma våldtas analt med svabb-  
+skaftet. Kollektivt och tyst. 
 
 
 C 
