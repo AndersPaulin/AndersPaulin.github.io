@@ -30,5 +30,4 @@ Det skulle glädja mig väldigt mycket om du tycker att det här låter intressa
 
 Varma hälsningar
 Anders Paulin 
-Varma hälsningar
-Anders Paulin 
+
