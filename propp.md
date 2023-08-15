@@ -374,20 +374,9 @@ som
  inga tårar kan  
 
 
+ *  * 
 
-
-
-* * *
-
-
-
-
-
-
-
-
-
-C
+C 
 JAG DRÖMDE 	 om en film 	  jag inte hade sett 	den avbildade 	   en gammal person en mycket gammal person       man eller kvinna jag vet inte     ensam i en liten lägenhet       gör sina vardagliga sysslor      mycket långsamt o- verkligt naturalistiskt långsamt      tar sig ur sängen      klär sig      går på toaletten     äter sittter i fåtölj      tittar på tv      dagsprogrammen allt med befintligt ljud    tung andning    has-anden       smackande       rosslingar     dova ljud      	från grannar gator rör               SÅ
 				        dör personen
 	plötsligt odramatiskt      slutar andas bara 	kanske efter en stilla infarkt     i fåtöljen
