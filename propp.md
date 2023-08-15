@@ -1,6 +1,6 @@
 (Mail från 2/3 2023)
 
-Hej Johan
+Hej Johan  
 Jag heter Anders Paulin och är teaterregissör och dramaturg. Om jag har förstått saken rätt så är det en introduktion som eventuellt skulle kunna göra dig lite skeptisk. Det skulle jag själv bli, inte bara om jag var i dina kläder, utan också inifrån mina egna. Jag har efter 35 års arbete en milt uttryckt ambivalent relation till teater; inte till teatern som poetisk form – det är det språk och hantverk där jag är hemma, och vars kollektiva logik jag i botten har en oerhört stark tro på –  men jag har vartefter byggt upp en avsevärd misstro till teatern som fält och ekonomi. Vi kan prata mer om de sakerna ifall du skulle vara intresserad av det jag skulle vilja föreslå.
 
 
