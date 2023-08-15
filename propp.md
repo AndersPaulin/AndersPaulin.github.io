@@ -215,7 +215,7 @@ dragsstäderska hemma våldtas analt med svabb-
 skaftet. Kollektivt och tyst. 
 
 
-C 
+C  
 Språkets performativa krafter gäller i vår typ av  
 samhälle blott och endast för redan liberalistiska-  
 kapitalistiska dygder; Homo liberalis som i en omni-  
