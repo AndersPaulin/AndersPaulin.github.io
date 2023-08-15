@@ -83,8 +83,8 @@ få in mer pengar.
 C   
 Kökskranen droppar. Badkarskranen droppar. Toalett-  
 kranen droppar. Köksfäkten susar skevt, för mycket,   
-liksom plågat, trots att den är avstängd, och fun-   
-gerar mycket dåligt när de slås på. 
+liksom plågat, trots att den är avstängd, och fungerar   
+mycket dåligt när de slås på. 
 
 
 A   
