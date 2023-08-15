@@ -376,13 +376,40 @@ som
 
  *  * 
 
-C 
-JAG DRÖMDE 	 om en film 	  jag inte hade sett 	den avbildade 	   en gammal person en mycket gammal person       man eller kvinna jag vet inte     ensam i en liten lägenhet       gör sina vardagliga sysslor      mycket långsamt o- verkligt naturalistiskt långsamt      tar sig ur sängen      klär sig      går på toaletten     äter sittter i fåtölj      tittar på tv      dagsprogrammen allt med befintligt ljud    tung andning    has-anden       smackande       rosslingar     dova ljud      	från grannar gator rör               SÅ
-				        dör personen
-	plötsligt odramatiskt      slutar andas bara 	kanske efter en stilla infarkt     i fåtöljen
-                
-   och filmen fortsätter          ett par timmar till den döde saknas inte av någon      blir kvar som död i lägenheten      kanske ett halvår ett år tre år      
-  kameran panorerar den döde    ansiktet   den 	snett öppna munnen ögonen    går nära också ting i lägenheten möbler   väggar   så småningom insekter   blomfugor    flugor svirr-aktiga svärmar      i solljus som födar in    torrt genom fönster      dova ljud utifrån       damm  som ansamlas   kroppen som torkar        samman 
+C  
+JAG DRÖMDE  om en film  
+jag inte hade sett, den avbildade  
+en gammal person en mycket gammal person  
+man eller kvinna jag vet inte  
+ensam i en liten lägenhet, gör sina vardagliga sysslor  
+mycket långsamt o-verkligt naturalistiskt långsamt  
+tar sig ur sängen  
+klär sig  
+går på toaletten  
+äter sitter i fåtölj, tittar på tv  
+dagsprogrammen allt med befintligt ljud  
+tung andning, hasanden, smackande, rosslingar, dova ljud  
+från grannar gator rör     
+
+
+SÅ - dör personen  
+plötsligt odramatiskt, slutar andas bara 
+kanske efter en stilla infarkt, i fåtöljen  
+
+och filmen fortsätter    
+ett par timmar till den döde saknas inte av någon  
+blir kvar som död i lägenheten  
+kanske ett halvår ett år tre år  
+kameran panorerar den döde, ansiktet  
+den snett öppna munnen ögonen  
+går nära också ting i lägenheten möbler  
+väggar, så småningom insekter, blomfugor  
+flugor, svirraktiga svärmar, i solljus som flödar in  
+torrt genom fönster  
+dova ljud utifrån  
+damm  som ansamlas  
+kroppen som torkar  
+samman 
 
 
 
