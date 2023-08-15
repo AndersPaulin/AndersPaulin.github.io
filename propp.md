@@ -251,37 +251,37 @@ sömn, i snö, i snö.
 
 
 A  
-Va... Alltså... Jag vet inte. Det är...  
+*Va... Alltså... Jag vet inte. Det är...* 
 
 
 D  
-Jag vet inte, men. Alltså...  
+*Jag vet inte, men. Alltså...*
 
 
 C  
-Det är svårt. 
+*Det är svårt.*
 
 
 B  
-Så ini helvete svårt. Jag tror kanske det är  
-omöjligt. 
+*Så ini helvete svårt. Jag tror kanske det är  
+omöjligt.*  
 
 
 A  
-Mer än omöjligt. Som en jävla... Jag vet inte.  
+*Mer än omöjligt. Som en jävla... Jag vet inte.*  
 
 
 D  
-Det är som en jävla sörja bara, av helt jävla  
+*Det är som en jävla sörja bara, av helt jävla  
 omöjligt och... Och en massa jävla skit och  
 kompletta jävla idioter. All jävla idioti.  
 Proppat med skit bara. Helt värdelös jävla skit.  
 Fy fan så jävla mycket skit. Bara så ini helvete  
-med skit och värdelös jävla skit bara.  
+med skit och värdelös jävla skit bara.*  
 
 
 B  
-Vad fan tror dom egentligen. Vad är det för jävla  
+*Vad fan tror dom egentligen. Vad är det för jävla  
 skit dom håller på med. Va. Vad är det för värdelös  
 jävla avföringsskit. Va. Vad är det för jävla diarré.  
 Va. Vad är det för jävla lösskitsdiarré som skits ut  
@@ -296,59 +296,59 @@ skit och skit som också sprutar in genom alla upp-
 knullade jävla kroppsöppningar man har på sin egen  
 jävla kropp. Sin egen jävla missfosterkropp. Sitt  
 eget jävla missfoster som man går omkring och bär  
-på hela jävla dagarna och sover i om nätterna...  
+på hela jävla dagarna och sover i om nätterna...*  
 
 
 C  
-...om man nu kan sova när man har en löjlig jävla  
+*...om man nu kan sova när man har en löjlig jävla  
 hjärna som fan i mig verkar guppa omkring i en dypöl  
 av lösskit däruppe i kukhuvudet och som man aldrig  
-kommer åt. En jävla diarrékukhjärna.  
+kommer åt. En jävla diarrékukhjärna.*  
 
 
 D  
-Det är ju för fan hela jävla tiden. 
+*Det är ju för fan hela jävla tiden.*  
 
 
 A 
-Det är ju för fan mer än hela jävla tiden. Det är  
-obegripligt mer än all jävla tid som finns.  
+*Det är ju för fan mer än hela jävla tiden. Det är  
+obegripligt mer än all jävla tid som finns.*  
 
 
 D  
-Det ska bara lägga av. Lägg av för fan. Sluta för  
-helvete. 
+*Det ska bara lägga av. Lägg av för fan. Sluta för  
+helvete.* 
 
 
 C  
-Men det gör ju aldrig det. Man dör ju själv först.  
+*Men det gör ju aldrig det. Man dör ju själv först.*  
 
 
 A  
-Långt före.
+*Långt före.*
 
 
 B  
-Det är fan som att man föds död. 
+*Det är fan som att man föds död.* 
 
 
 C  
-Och så slutar det aldrig. Skiten är utan slut.  
+*Och så slutar det aldrig. Skiten är utan slut.*  
 
 
 D 
-Gud om man ändå fick sova... länge, länge, länge...   
+*Gud om man ändå fick sova... länge, länge, länge...   
 och sen vakna upp till nåt helt annat än den vanliga  
 jävla skiten som när man gick och la sig... Men nu  
-är det ju för fan tvärtom.  
+är det ju för fan tvärtom.* 
 
 
 B  
-Man blir helt plötsligt bara... utan nåt minne egentli-  
+*Man blir helt plötsligt bara... utan nåt minne egentli-  
 gen, av att ha levt... väckt av nån jävla kukbillig  
 slaskfittig jävla kukslemsidiotröst som viskar och  
 väser slemlikt till en: Vakna, vakna – det är dags  
-att dö, värdelösa jävla skitidiotnolla. 
+att dö, värdelösa jävla skitidiotnolla.* 
 
 
 *  * 
