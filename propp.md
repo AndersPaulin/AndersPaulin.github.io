@@ -71,8 +71,8 @@ på något analt vis.
 
 
 B    
-Boken som inte finns, som är omöjlig. Det är  
-varje författares dröm. 
+*Boken som inte finns, som är omöjlig. Det är  
+varje författares dröm.* 
 
 
 D  
@@ -96,7 +96,7 @@ Att leva är omöjligt.
 
 
 A   
-Jag minns boken. Boken minns inte mig 
+*Jag minns boken. Boken minns inte mig.* 
 
 
 B   
@@ -115,7 +115,7 @@ minut kommer en granne. Då tänds lysrören.
 
 
 A  
-Boken är utan annan idé. Det är idéerna som behöver boken.  
+*Boken är utan annan idé. Det är idéerna som behöver boken.*  
 
 
 C  
@@ -141,7 +141,7 @@ Hemma, i lägenheten, dit räkningarna kommer.
 
 
 B   
-Boken. Istället för författarens och läsarens mediokra liv. 
+*Boken. Istället för författarens och läsarens mediokra liv.* 
 
 
 C  
@@ -152,7 +152,7 @@ I lägenheten, hemma, långt borta från min klass.
 
 
 B  
-Boken erbjuder ingen lättnad, ingen förståelse.  
+*Boken erbjuder ingen lättnad, ingen förståelse.*  
  
 D  
 Alltså. De ser fan parodiskt medelklasslöjliga ut i  
@@ -166,7 +166,7 @@ med en babianaktig självsäkerhet.
 
 
 B  
-Boken ingår i klasskampen, i dess samtliga riktningar. 
+*Boken ingår i klasskampen, i dess samtliga riktningar.* 
 
 
 C  
@@ -179,7 +179,7 @@ liberalisäcklen.
 
 
 D  
-Boken som undantagets andetag.
+*Boken som undantagets andetag.*
 
 
 B 
@@ -190,14 +190,14 @@ död, det går inte att komma ifrån.
 
 
 D  
-Bokens kärlek är likgiltig och kan lika gärna tas i  
-bruk av din fiende. 
+*Bokens kärlek är likgiltig och kan lika gärna tas i  
+bruk av din fiende.* 
 
 
 *  *
 
 C  
-Boken är skulpturer av sand och vind i öknen. 
+*Boken är skulpturer av sand och vind i öknen.* 
 
 
 A  
@@ -226,7 +226,7 @@ allt självcensurerar så mycket samtida tal och språk.
 
 
 A  
-Bokens ömhet tar aldrig slut, ty dess väsen är vanmakt. 
+*Bokens ömhet tar aldrig slut, ty dess väsen är vanmakt.* 
 
 
 C  
@@ -242,8 +242,8 @@ vara? Vad annat också jag?
 
 
 D 
-Boken som den orepresenterbara boken, med dess vita  
-sömn, i snö, i snö. 
+*Boken som den orepresenterbara boken, med dess vita  
+sömn, i snö, i snö.* 
 
 
 
