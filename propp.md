@@ -91,7 +91,7 @@ A
 Att leva är omöjligt.   
 
 
-*   *   *
+*   *   - - -
 
 
 A 
