@@ -208,7 +208,7 @@ ver. Vad annat skulle de aktivistiska subjekten kunna
 vara? Vad annat också jag? 
 
 
-D 
+D  
 *Boken som den orepresenterbara boken, med dess vita  
 sömn, i snö, i snö.* 
 
