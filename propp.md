@@ -1,4 +1,4 @@
-(Mail från 2/3 2023)
+(mail till Johan Jönson, 2 mars 2023)
 
 Hej Johan  
 Jag heter Anders Paulin och är teaterregissör och dramaturg. Om jag har förstått saken rätt så är det en introduktion som eventuellt skulle kunna göra dig lite skeptisk. Det skulle jag själv bli, inte bara om jag var i dina kläder, utan också inifrån mina egna. Jag har efter 35 års arbete en milt uttryckt ambivalent relation till teater; inte till teatern som poetisk form – det är det språk och hantverk där jag är hemma, och vars kollektiva logik jag i botten har en oerhört stark tro på –  men jag har vartefter byggt upp en avsevärd misstro till teatern som fält och ekonomi. Vi kan prata mer om de sakerna ifall du skulle vara intresserad av det jag skulle vilja föreslå.
@@ -89,13 +89,6 @@ och fungerar mycket dåligt när de slås på.
 
 
 A   
-Att leva är omöjligt.   
-
-
-*   * 
-
-
-A   
 *Jag minns boken. Boken minns inte mig.* 
 
 
@@ -114,13 +107,8 @@ fyller på tvättmedel. Men inget ljus tänds. Efter nån
 minut kommer en granne. Då tänds lysrören. 
 
 
-A  
-*Boken är utan annan idé. Det är idéerna som behöver boken.*  
-
-
-C  
-Jag tillhör den del av mänskligheten som slickar och äter  
-också blödande kvinnor. 
+B   
+*Boken. Istället för författarens och läsarens mediokra liv.* 
 
 
 D  
@@ -140,19 +128,16 @@ C
 Hemma, i lägenheten, dit räkningarna kommer. 
 
 
-B   
-*Boken. Istället för författarens och läsarens mediokra liv.* 
-
-
-C  
+A  
 I lägenheten, hemma, långt borta från min klass. 
-
-
-*  *
 
 
 B  
 *Boken erbjuder ingen lättnad, ingen förståelse.*  
+
+
+*  *
+
  
 D  
 Alltså. De ser fan parodiskt medelklasslöjliga ut i  
@@ -194,12 +179,6 @@ D
 bruk av din fiende.* 
 
 
-*  *
-
-C  
-*Boken är skulpturer av sand och vind i öknen.* 
-
-
 A  
 All denna konst och litteratur som liberalistiska  
 verkställande utskott, nyttig idioti. Att inte för-  
@@ -209,30 +188,18 @@ är möjligt är löjligt; klassförräderi, ytterligare
 cementering. 
 
 
+C  
+*Boken är skulpturer av sand och vind i öknen.* 
+
+
 D  
 Igen. Ja. Igen. Ja: Att den som använder rutpigav-  
 dragsstäderska hemma våldtas analt med svabb-  
 skaftet. Kollektivt och tyst. 
 
 
-C  
-Språkets performativa krafter gäller i vår typ av  
-samhälle blott och endast för redan liberalistiska-  
-kapitalistiska dygder; Homo liberalis som i en omni-  
-present semiotisk kapitalism oavlåtligt påbjuds möj-  
-lighet att reproducera sig själv och de sina och det   
-nära egna och därför ängsligt, censurerar och framför  
-allt självcensurerar så mycket samtida tal och språk. 
-
-
 A  
 *Bokens ömhet tar aldrig slut, ty dess väsen är vanmakt.* 
-
-
-C  
-Alla dessa tecken på tecken på tecken som aldrig blir  
-realiserade; tomma löften, potentialitetslögnens ideo-  
-logisering. Jag vet inte. Nej. Nej. Jag vet inte. 
 
 
 B  
@@ -244,7 +211,6 @@ vara? Vad annat också jag?
 D 
 *Boken som den orepresenterbara boken, med dess vita  
 sömn, i snö, i snö.* 
-
 
 
  *  *  
