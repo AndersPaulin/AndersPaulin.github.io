@@ -382,14 +382,8 @@ samman
 
 
 D  
-Bergen, fjällen. De står resta som väldiga monoliter. Att uttala deras kartografiska namn sammanfattar ingenting av deras realitet. Namnet blåser bort i vinden som ett bortfört knott. Bergskedjans geologiska veckning vittnar för en kontinuitet av oerfarbart lång tid som föregår varje språks kosmologi, och kommer att förbli efter dess upphörande. Att föreställa sig att vandra upp för bergets sida är inte möjligt. Inte ens de till synes mest beskedliga av fjäll. Det skulle ta veckor, kroppens krafter skulle inte räcka till. / Vandringens dalgång en gång täckt av tjock is. Att föreställa sig detta massiv, dess inneslutna tid, dess årtusende efter årtusende av stillastående. Nej. Det förblir absolut abstrakt. Som om en mygga med två veckors livsspann utantill skulle lära sig en encyklopedi över homo sapiens totala historia. / 
-
-
-B  
-Allt detta utanför en själv, som inte tas någon hänsyn till här. Man är en tillfällig besökare i denna ekologi. Man är inte giltig, en perifer störning. Utan funktion. / 
-
-
-A  
+Bergen, fjällen. De står resta som väldiga monoliter. Att uttala deras kartografiska namn sammanfattar ingenting av deras realitet. Namnet blåser bort i vinden som ett bortfört knott. Bergskedjans geologiska veckning vittnar för en kontinuitet av oerfarbart lång tid som föregår varje språks kosmologi, och kommer att förbli efter dess upphörande. Att föreställa sig att vandra upp för bergets sida är inte möjligt. Inte ens de till synes mest beskedliga av fjäll. Det skulle ta veckor, kroppens krafter skulle inte räcka till. / Vandringens dalgång en gång täckt av tjock is. Att föreställa sig detta massiv, dess inneslutna tid, dess årtusende efter årtusende av stillastående. Nej. Det förblir absolut abstrakt. Som om en mygga med två veckors livsspann utantill skulle lära sig en encyklopedi över homo sapiens totala historia. /  
+Allt detta utanför en själv, som inte tas någon hänsyn till här. Man är en tillfällig besökare i denna ekologi. Man är inte giltig, en perifer störning. Utan funktion. /  
 Och så kommer hastigt regn. Regn, regn. Det vräker ner, den starka blåsten driver det ställvis i sidled, som om det regnade horisontellt. Regnstället står inte emot längre, kyler ner den svettiga kroppen. Känslan av att vara naken. Regnet och blåsten piskar minsta välbefinnande ur kroppen. Misströstan att alls komma fram. Tröttheten som en feber. Mycket lätt att föreställa sig den egna liggande kroppen, bland tuvorna, gräset och ljungen, som bara långsamt sjunker in i marken, täcks av lera, försvinner, helt utan spår. Bara vandringskängorna och de syntetiska klädesplaggen kvar, som skräp, nedsmutsning. 
 
 
