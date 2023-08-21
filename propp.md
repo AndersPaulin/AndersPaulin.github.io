@@ -395,11 +395,11 @@ i ett dammigt hörn.
  *  * 
 
 
-A  
- - - - Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. - - -
+A   
+Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. - - -
 
 
-D
+D  
 Livsstilsliberalismlitteraturen, som så hegemoniskt dominerar den svenska borgerligt litterära offentligheten, och kanske särskilt Dagens Nyheters numer explicit kulturkonsumentrådgivande kultursidor, har det som snart sagt enda ämne; just för att dramatisera, legitimera och affirmera den egna mer eller mindre mediokra livsföringen, strukturellt och inte sällan orättmätigt erhållen, vilket bortträngs till förmån för en orefekterat och liberalistiskt metafysisk och megalomant monumental narcissism för enskilda karaktärer, deras ytterst begränsade sociala gruppering, dess troper och språk. Att verkligen erfara och tänka, självreflexivt och kritiskt, med litteraturen, om litteraturen, blir i en livsstilsliberalismlitteraturregim en anomali, något perverst krävande. - - - 
 
 
