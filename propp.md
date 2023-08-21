@@ -185,10 +185,10 @@ nära egna och därför ängsligt, censurerar och framför
 allt självcensurerar så mycket samtida tal och språk.  
 
 
-A 
-Alla dessa tecken på tecken på tecken som aldrig blir 
-realiserade; tomma löften, potentialitetslögnens ideo-
-logisering. Jag vet inte. Nej. Nej. Jag vet inte. 
+A  
+Alla dessa tecken på tecken på tecken som aldrig blir  
+realiserade; tomma löften, potentialitetslögnens ideo-  
+logisering. Jag vet inte. Nej. Nej. Jag vet inte.  
 
 
 B  
