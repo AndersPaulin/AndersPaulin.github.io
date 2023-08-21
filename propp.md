@@ -56,6 +56,11 @@ vi göra. Låt oss för fan i helvetes jävlar oss
 vara ifred med våra mediokra jävla skitliv.  
 
 
+B    
+*Boken som inte finns, som är omöjlig. Det är  
+varje författares dröm.* 
+
+
 A     
 Ser på tv. Jag äcklas, står inte ut med att lyssna   
 på dess ideologiska propaganda. Vill pissa i varje   
@@ -68,11 +73,6 @@ den mest simplistiska bildregim. Att döma av tittar-
 siffror och medial uppmärksamhet en majoritet av   
 befolkningen. De borde bestraffas med stålstänger  
 på något analt vis. 
-
-
-B    
-*Boken som inte finns, som är omöjlig. Det är  
-varje författares dröm.* 
 
 
 D  
@@ -111,13 +111,6 @@ B
 *Boken. Istället för författarens och läsarens mediokra liv.* 
 
 
-D  
-Duggregnet som ett glest dis ner mellan träden, gren-  
-verken, de vagt ryttlande bladen; sugs upp av mossan;  
-filtreras så, neråt, långsamt, långsamt; rinner in, som  
-avlånga, silvriga skuggningar, i lingonmarken. 
-
-
 A  
 Kökskranen droppar. Kranen på toaletten droppar. Dusch-  
 munstycket droppar rinnigt. Det tickar inifrån lägenheten.  
@@ -134,9 +127,6 @@ I lägenheten, hemma, långt borta från min klass.
 
 B  
 *Boken erbjuder ingen lättnad, ingen förståelse.*  
-
-
-*  *
 
  
 D  
@@ -174,19 +164,6 @@ ständigt negligerad av min klass. Det är en form av
 död, det går inte att komma ifrån. 
 
 
-D  
-*Bokens kärlek är likgiltig och kan lika gärna tas i  
-bruk av din fiende.* 
-
-
-A  
-All denna konst och litteratur som liberalistiska  
-verkställande utskott, nyttig idioti. Att inte för-  
-falla till någon inbillat och påbjudet "god" hand-  
-ling för att ge det egna livet lite mening. Det som  
-är möjligt är löjligt; klassförräderi, ytterligare  
-cementering. 
-
 
 C  
 *Boken är skulpturer av sand och vind i öknen.* 
@@ -198,8 +175,20 @@ dragsstäderska hemma våldtas analt med svabb-
 skaftet. Kollektivt och tyst. 
 
 
-A  
-*Bokens ömhet tar aldrig slut, ty dess väsen är vanmakt.* 
+C 
+Språkets performativa krafter gäller i vår typ av 
+samhälle blott och endast för redan liberalistiska-
+kapitalistiska dygder; Homo liberalis som i en omni-
+present semiotisk kapitalism oavlåtligt påbjuds möj-
+lighet att reproducera sig själv och de sina och det 
+nära egna och därför ängsligt, censurerar och framför 
+allt självcensurerar så mycket samtida tal och språk.  
+
+
+A 
+Alla dessa tecken på tecken på tecken som aldrig blir 
+realiserade; tomma löften, potentialitetslögnens ideo-
+logisering. Jag vet inte. Nej. Nej. Jag vet inte. 
 
 
 B  
@@ -287,22 +276,6 @@ helvete.*
 
 
 C  
-*Men det gör ju aldrig det. Man dör ju själv först.*  
-
-
-A  
-*Långt före.*
-
-
-B  
-*Det är fan som att man föds död.* 
-
-
-C  
-*Och så slutar det aldrig. Skiten är utan slut.*  
-
-
-D  
 *Gud om man ändå fick sova... länge, länge, länge...   
 och sen vakna upp till nåt helt annat än den vanliga  
 jävla skiten som när man gick och la sig... Men nu  
@@ -315,19 +288,6 @@ gen, av att ha levt... väckt av nån jävla kukbillig
 slaskfittig jävla kukslemsidiotröst som viskar och  
 väser slemlikt till en: Vakna, vakna – det är dags  
 att dö, värdelösa jävla skitidiotnolla.* 
-
-
- *  * 
-
-
-C  
-Natt, tät natt. Ett disigt duggregn faller som en stilla  
-slöja i mörkret.  
-En bil passerar förbi, gör en sväng, dess lyktor lyser hastigt och fläckvis upp en del av ett överväxt köpcenrum, en gammal mataffär, tycks det, till stor del täckt av evolutionär mossa, och försvinner så bort.  
-Inne i den mer hoprasade än intakta byggnaden har en flock apor tillfälligt sökt skydd från det ihärdiga duggregnandet, som snarare liknar en ihållande atmosfär än en övergående väderlek. Några apor tar sig på måfå runt i byggnaden, mellan deformerade kundvagnar, dammiga längor med kyldiskar, rasade hyllor, bråte, bråte, på håglös jakt efter något ätbart, men allt sånt är sen länge borta, redan uppätet av andra djur och insekter. Apflocken är tyst. Som om de är trötta utmattade, rådvilla. Regnet hörs inte. Bara dropp. 
-
-
-När jag vaknar på morgonen, tidigt, vid kvart i fem, minns jag drömmen för något ögonblick, samtidigt som jag, sittande på sängkanten, stirrar på mina underarmar i dunklet. Så håriga, tänker jag. Sen minns jag ingenting av drömmen längre. 
 
 
  *  * 
@@ -383,8 +343,6 @@ samman
 
 D  
 Bergen, fjällen. De står resta som väldiga monoliter. Att uttala deras kartografiska namn sammanfattar ingenting av deras realitet. Namnet blåser bort i vinden som ett bortfört knott. Bergskedjans geologiska veckning vittnar för en kontinuitet av oerfarbart lång tid som föregår varje språks kosmologi, och kommer att förbli efter dess upphörande. Att föreställa sig att vandra upp för bergets sida är inte möjligt. Inte ens de till synes mest beskedliga av fjäll. Det skulle ta veckor, kroppens krafter skulle inte räcka till. / Vandringens dalgång en gång täckt av tjock is. Att föreställa sig detta massiv, dess inneslutna tid, dess årtusende efter årtusende av stillastående. Nej. Det förblir absolut abstrakt. Som om en mygga med två veckors livsspann utantill skulle lära sig en encyklopedi över homo sapiens totala historia. /  
-Allt detta utanför en själv, som inte tas någon hänsyn till här. Man är en tillfällig besökare i denna ekologi. Man är inte giltig, en perifer störning. Utan funktion. /  
-Och så kommer hastigt regn. Regn, regn. Det vräker ner, den starka blåsten driver det ställvis i sidled, som om det regnade horisontellt. Regnstället står inte emot längre, kyler ner den svettiga kroppen. Känslan av att vara naken. Regnet och blåsten piskar minsta välbefinnande ur kroppen. Misströstan att alls komma fram. Tröttheten som en feber. Mycket lätt att föreställa sig den egna liggande kroppen, bland tuvorna, gräset och ljungen, som bara långsamt sjunker in i marken, täcks av lera, försvinner, helt utan spår. Bara vandringskängorna och de syntetiska klädesplaggen kvar, som skräp, nedsmutsning. 
 
 
  *  * 
@@ -438,7 +396,11 @@ i ett dammigt hörn.
 
 
 A  
-Att ”människan” inte kan ha ”ett okränkbart värde”, som det brukar heta, när brösttonerna tas fram, eftersom att ha ett värde alltid och per definition innebär att vara till salu, om bara priset är det rätta. - - - Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. - - - Psykologi äcklar mig, som Duras sa. Livsstilsliberalismlitteraturen, som så hegemoniskt dominerar den svenska borgerligt litterära offentligheten, och kanske särskilt Dagens Nyheters numer explicit kulturkonsumentrådgivande kultursidor, har det som snart sagt enda ämne; just för att dramatisera, legitimera och affirmera den egna mer eller mindre mediokra livsföringen, strukturellt och inte sällan orättmätigt erhållen, vilket bortträngs till förmån för en orefekterat och liberalistiskt metafysisk och megalomant monumental narcissism för enskilda karaktärer, deras ytterst begränsade sociala gruppering, dess troper och språk. Att verkligen erfara och tänka, självreflexivt och kritiskt, med litteraturen, om litteraturen, blir i en livsstilsliberalismlitteraturregim en anomali, något perverst krävande. - - - 
+ - - - Att alltid och överallt bara kunna drömma om det näst intill samma, samma och lika. Det utgör den liberalistiska kapitalismens imperativa och spöklika löfte. - - -
+
+
+D
+Livsstilsliberalismlitteraturen, som så hegemoniskt dominerar den svenska borgerligt litterära offentligheten, och kanske särskilt Dagens Nyheters numer explicit kulturkonsumentrådgivande kultursidor, har det som snart sagt enda ämne; just för att dramatisera, legitimera och affirmera den egna mer eller mindre mediokra livsföringen, strukturellt och inte sällan orättmätigt erhållen, vilket bortträngs till förmån för en orefekterat och liberalistiskt metafysisk och megalomant monumental narcissism för enskilda karaktärer, deras ytterst begränsade sociala gruppering, dess troper och språk. Att verkligen erfara och tänka, självreflexivt och kritiskt, med litteraturen, om litteraturen, blir i en livsstilsliberalismlitteraturregim en anomali, något perverst krävande. - - - 
 
 
 B  
