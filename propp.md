@@ -177,7 +177,7 @@ skaftet. Kollektivt och tyst.
 
 C  
 Språkets performativa krafter gäller i vår typ av  
-samhälle blott och endast för redan liberalistiska-  
+samhälle blott och endast för redan liberalistiska-   
 kapitalistiska dygder; Homo liberalis som i en omni-  
 present semiotisk kapitalism oavlåtligt påbjuds möj-  
 lighet att reproducera sig själv och de sina och det  
