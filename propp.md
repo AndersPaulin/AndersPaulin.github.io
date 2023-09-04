@@ -35,6 +35,101 @@ Anders Paulin
 
 (utdrag ur *ProponeisiS* 2021)
 
+D  
+Att hissas in i ugnen. Ja. Det är från då. Jag  
+minns det. Ja. Min kropp minns. Kroppsdelarna.  
+I presens. Alltid i presens. Ja. Det är också  
+nu. Också andra. Deras delade jag. Ja. Ugnarna  
+producerar. Ja. Det är finkornigt grafitpulver.  
+Materiernas materia. Ja. Det innersta tickandet.  
+Det bortersta tickandet. Det som var innan. Det  
+som kommer efter. Ja. Det produceras. Med hög  
+temperatur väver ugnarna kolpartiklar. Sen svalna.  
+Från 1300-1400 grader till 50-60. Sen rengöras.  
+Skrapas av. Inuti. Inifrån. Vi är ugnssanerare.  
+Ugnsbiffar. Vi ska in i de avsvalnande ugnarna.  
+Ja. 
+
+
+B  
+Ja. Man träder in i den tättslutande overallen.  
+Den måste slutas om kroppen. Man tejpar igen  
+gliporna. Hjälm på. Ansiktsmask på. Ja. Som en  
+dykare in i produktionens tomrum. En slang med  
+luft mynnar ut inne bakom ansiktsmaskens plexi- 
+glas. Slangen hänger ner genom ugnen. Åtta meter.  
+Tio. Ja. Som en navelsträng av gummi och plast  
+från fabrikens inre. En motoriserad hjälplunga.  
+Till sanerarens andning. Till arbetsrörelserna. 
+Till kroppens repetitioner. Ja. 
+
+
+D  
+Ja. Man sätter sig på traversgungan. Man hissas  
+in. Det är uppåt. Från ugnens nedre öppning. In.  
+Uppåt. Man har verktygen i bälte runt midjan.  
+Man  är innesluten i overallen. Man är omsluten  
+av ugnen.  I värmen. I osynlig strålning. I dess  
+abstrakt påtagliga tryck. Ja. Man kommer upp. Man  
+höjer tryckluftsstämjärnet. Man försöker hitta en  
+liten spricka  i den kompakta grafitvägg som bildas  
+som slagg efter ugnens grafitpulverproduktion. Som  
+en svart platta. Produktionsrester. Det ska tas  
+bort. Avlägsnas. Ja.  Ugnens tomrum ska åter upp-  
+rättas. En ny produktionscykel ska inledas. Ja. 
+
+
+A  
+Ja. Man trycker in stämjärnsbladet. Man använder  
+axeln. Man spänner armen och fixerar trycklufts-  
+stämjärnet. Man spänner ryggen. Axlarna. Magmusk-  
+lerna. Man biter samman tandraderna. Ja. Och så för   
+man in verktygets reglage med det skyddshandske-  
+beklädda pekfingret och släpper fram trycklufts-  
+kraften. Ja. Stämjärnsbladet vibrerar. Verktyget  
+vibrerar. 
+
+
+C  
+Handen vibrerar. Armen. Överkroppen vibrerar. 
+
+
+A
+Musklerna vibrerar. Dämpar rekylerna. Ja. 
+
+
+B  
+Ja. Man trycker tillbaka. Återriktar musklernas  
+krafter mot verktyget, mot tryckluftsstämjärnets  
+hackande blad. In i sprickan. Det har blivit en  
+spricka. Ja. Äntligen. Ja. Den jävla skitfttan.  
+Ja. 
+
+
+C  
+Ja. Sprickan vidgas. Ett litet flak av kompri-  
+merad grafit faller ner genom ugnens inre och  
+ut genom öppningen. Ja. Man svettas. T-shirten  
+klibbar  vid ryggen. Ansiktet med glansiga  
+rännilar av svett.  Man fortsätter. Luften pyser  
+in genom slangen. Det finkorniga grafitpulvret  
+tar sig in överallt. Genom masker och vita  
+plastiska overallvävnader. Ja. In i  ögonen.  
+I näsan. I öronen. In i hårbotten. Genom huden.  
+Genom porerna. Ja
+
+
+D  
+Ja. Det är från då. Jag minns det. Ja. Min kropp  
+minns. Kroppsdelarna. I presens. Alltid i presens.  
+Ja. Det är också nu. Också andra. Deras delade jag.  
+Ja. 
+
+
+*  * 
+
+
+
 A   
 Jag måste få in mer pengar. Måste. Vi måste få   
 in mer pengar. Måste. Mera pengar. Mer. Det är   
