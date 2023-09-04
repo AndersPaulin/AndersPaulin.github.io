@@ -56,11 +56,11 @@ Ja. Man träder in i den tättslutande overallen.
 Den måste slutas om kroppen. Man tejpar igen  
 gliporna. Hjälm på. Ansiktsmask på. Ja. Som en  
 dykare in i produktionens tomrum. En slang med  
-luft mynnar ut inne bakom ansiktsmaskens plexi- 
+luft mynnar ut inne bakom ansiktsmaskens plexi-  
 glas. Slangen hänger ner genom ugnen. Åtta meter.  
 Tio. Ja. Som en navelsträng av gummi och plast  
 från fabrikens inre. En motoriserad hjälplunga.  
-Till sanerarens andning. Till arbetsrörelserna. 
+Till sanerarens andning. Till arbetsrörelserna.  
 Till kroppens repetitioner. Ja. 
 
 
@@ -94,7 +94,7 @@ C
 Handen vibrerar. Armen. Överkroppen vibrerar. 
 
 
-A
+A  
 Musklerna vibrerar. Dämpar rekylerna. Ja. 
 
 
