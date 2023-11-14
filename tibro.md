@@ -19,13 +19,13 @@ Av och med: Anders Paulin och Johan Forsman
 Teknik: Peter Widell
 Inspelad röst: Ulf Rönnerstrand
 
-*Trailer:*  https://vimeo.com/875940277  
-*Videoadaption:*  https://vimeo.com/880614456
-
 Producerat av Skogen med stöd av Statens Kulturråd
 
 Tack till Tibro Museum, Martin Toresson, Leif Ahnland, Nya Hotellet,
 Västergötlands Museum och alla vi träffat i Tibro.
+
+***Trailer:***  https://vimeo.com/875940277  
+***Videoadaption:***  https://vimeo.com/880614456
 
 ![](/tibrostation.jpg)  
 
