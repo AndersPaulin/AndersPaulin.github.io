@@ -1,10 +1,10 @@
 ![](/tibro25cm.jpg) 
 
-*Trailer:*  https://vimeo.com/875940277  
-*Videoadaption:*  https://vimeo.com/880614456
-
 **TIBROSAMLINGEN**  
 **Halvsanna Berättelser om Världen och Tibro**
+
+*Trailer:*  https://vimeo.com/875940277  
+*Videoadaption:*  https://vimeo.com/880614456
 
 **Tibrosamlingen** är den första föreställningen inom ramen för Anders Paulins och Johan Forsmans projekt The Promise som startade 2020 och avslutas 2050.
 
