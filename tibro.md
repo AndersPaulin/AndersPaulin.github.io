@@ -2,7 +2,6 @@
 
 **TIBROSAMLINGEN**  
 **Halvsanna Berättelser om Världen och Tibro**
-
 *Trailer:*  https://vimeo.com/875940277  
 *Videoadaption:*  https://vimeo.com/880614456
 
