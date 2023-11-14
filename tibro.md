@@ -1,7 +1,7 @@
 ![](/tibro25cm.jpg) 
 
-*Trailer:* https://vimeo.com/875940277  
-*Videoadaption:* https://vimeo.com/880614456
+*Trailer:*  https://vimeo.com/875940277  
+*Videoadaption:*  https://vimeo.com/880614456
 
 **TIBROSAMLINGEN**  
 **Halvsanna Berättelser om Världen och Tibro**
