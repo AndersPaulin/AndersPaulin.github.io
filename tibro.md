@@ -1,5 +1,8 @@
 ![](/tibro25cm.jpg) 
 
+***Trailer:***  https://vimeo.com/875940277  
+***Videoadaption:***  https://vimeo.com/880614456
+
 **TIBROSAMLINGEN**  
 **Halvsanna Berättelser om Världen och Tibro**
 
@@ -23,9 +26,6 @@ Producerat av Skogen med stöd av Statens Kulturråd
 
 Tack till Tibro Museum, Martin Toresson, Leif Ahnland, Nya Hotellet,
 Västergötlands Museum och alla vi träffat i Tibro.
-
-***Trailer:***  https://vimeo.com/875940277  
-***Videoadaption:***  https://vimeo.com/880614456
 
 ![](/tibrostation.jpg)  
 
