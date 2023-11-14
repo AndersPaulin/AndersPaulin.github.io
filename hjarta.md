@@ -1,5 +1,9 @@
 ![](/hjarta.jpg)
 
+***Trailer:*** vimeo.com/user11180426/ 
+  
+***Excerpts:*** vimeo.com/880675507   
+
 **HEART OF GLASS**
 
 In the small  18th century village that constitutes the landscape of the story, the cycle of life is built on and around the glasswork. Here the unique ruby red glass has been produced from time immemorial. But now the glazier has died and taken the secret recipe to his grave, and the community has sunken into some sort of undead torpor. Where no production longer takes place, all poetical and political potency and vision ceases - the days and the work continues, but the society and its soul has disappeared.
