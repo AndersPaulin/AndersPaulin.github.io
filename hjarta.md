@@ -2,7 +2,7 @@
 
 ***Trailer:*** https://vimeo.com/875938030 
   
-***Excerpts:*** vimeo.com/880675507   
+***Excerpts:*** https://vimeo.com/880675507   
 
 **HEART OF GLASS**
 
