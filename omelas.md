@@ -1,5 +1,5 @@
 **UTSIKT ÖVER OMELAS**  
-**i samarbete med Emma Palmkvist och Ulf Rönnerstrand**  
+**Angereds Teater, i samarbete med Emma Palmkvist, Ulf Rönnerstrand och Tor Lindstrand**  
 
 *Utsikt över Omelas* är ett interdisciplinärt konstprojekt som arbetar med vår förmåga att föreställa oss ett utopiskt samhälle, och utopins inneboende paradox: den vision om en ny verklighet som bara kan existera bortom verkligheten. Genom att låta poetisk text, dramaturgi, animation, arkitektur och speldesign mötas vill skapa ett rum som aktiverar kollektiva fantasier om samhällssystem som fungerar på helt andra premisser än våra nuvarande. 
 
