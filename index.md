@@ -3,18 +3,18 @@
 ![](/neithersmall.jpg)
 
 ## PRESENT THINGS
-[Hjärta av Glas (Heart of Glass)](/hjarta.md)  
+[ProponeisiS & Nollamorfa](/propp.md)  
+[Omelas](/omelas.md)  
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
 ## THINGS I'D LIKE TO DO
-[ProponeisiS & Nollamorfa](/propp.md)  
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
-[Omelas](/omelas.md)  
 [Juvelen](/Juvelen.md)  
 
 ## THINGS I HAVE DONE
 [Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
+[Hjärta av Glas (Heart of Glass)](/hjarta.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
 [PIM - Para Institutional Models](/pim.md)  
 [I See The Rocky Island Again](/rockyisland.md)  
