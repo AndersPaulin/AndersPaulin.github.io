@@ -6,11 +6,12 @@ En central tankefigur är vår tids osynliggörandet av arbete, där det arbetan
 
 
 *Spelplatser 2025*
+
 Skogen, Göteborg (28/2-2/3). Weld, Stockholm (28-30/3). Ställbergs Gruva (tba)
 
 
 
-
+* * *
 
 
 
