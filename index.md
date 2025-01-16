@@ -3,7 +3,7 @@
 ![](/neithersmall.jpg)
 
 ## PRESENT THINGS
-[Negativiteten](/propp.md)  
+[Negativiteten](/negativiteten.md)  
 [Omelas](/omelas.md)  
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
