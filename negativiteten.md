@@ -1,4 +1,4 @@
-IMG_1357.HEIC
+
 
 
 NEGATIVITETEN är en performativ installation baserad på poeten Johan Jönsons bok *ProponeisiS*. Med utgångspunkt i teater som textens arkitektur oscillerar verket i ett transmedialt fält mellan autonomt objekt och performativ rumstid. En poetisk apparatus, likt Aniaras Miman samtidigt maskin och kollektivt minne, där subjektivitet kontinuerligt produceras i mötet mellan singulär och kollektiv erfarenhet. 
