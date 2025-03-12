@@ -12,9 +12,7 @@ ________________________________________________________________________________
 **28, 29, 30 mars NEGATIVITETEN på Weld, Stockholm**
 
 28 mars kl 17.00–23.00
-
 29 mars kl 17.00–23.00
-
 30 mars kl 14.00-20.00
 
 (Obs! Artist talk 30 mars kl. 17.00 Anders Paulin, Johan Jönsson m.fl.)
@@ -22,7 +20,6 @@ ________________________________________________________________________________
  *  *  *
 
 *Spelplatser 2025*
-
 Skogen, Göteborg (28/2-2/3). Weld, Stockholm (28-30/3). Ställbergs Gruva (tba)
 
  *  *  *
