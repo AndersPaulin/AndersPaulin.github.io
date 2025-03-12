@@ -17,7 +17,7 @@ ________________________________________________________________________________
 
 (Obs! Artist talk 30 mars kl. 17.00 Anders Paulin, Johan Jönsson m.fl.)
 
-
+ *  *  *
 
 *Spelplatser 2025*
 
@@ -27,11 +27,12 @@ Skogen, Göteborg (28/2-2/3). Weld, Stockholm (28-30/3). Ställbergs Gruva (tba)
 
 
 
- *  *  *
+
+ *  * 
 
 
 också tårarna
 är kapitalistiska
 
 
- *  *  *
+ *  * 
