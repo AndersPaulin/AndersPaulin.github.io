@@ -43,7 +43,7 @@ Residens på Hägerstensåsens medborgarhus
 
 Med stöd av Konstnärsnämnden.
 
-![](/20250228_174602.png)
+* * *
 
 NEGATIVITETEN is a performative installation based on the book ”ProponeisiS” by the Swedish poet Johan Jönson.
 
@@ -54,3 +54,11 @@ Johan Jönson’s text is lyrical epos; a polyphonic song cycle, in which a comb
 A central figure of thought is the contemporary invisibilization of labor, where working life is rendered the abject of urban middle class, that also harbors an emancipatory principle of diligence. The tangible and extensive effort of work that the text means and conditions of writer as well as receiver over time produces an autonomous sphere, beyond the hierarchic ranking of transactional logics, where our commonly invested engagement offers a space in which we can meet on equal terms.
 
 The installation is designed as a cyclical suite with a playing time of about 4.5 hours, and you come and go as you please during opening hours.
+
+![](/20250228_174602.png)
+
+![](/20250228_161253.png)
+
+![](/IMG_1367.png)
+
+![](/IMG_1378.png)
