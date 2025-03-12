@@ -11,18 +11,15 @@ ________________________________________________________________________________
 
 **28, 29, 30 mars NEGATIVITETEN på Weld, Stockholm**
 
-28 mars kl 17.00–23.00
-
-29 mars kl 17.00–23.00
-
+28 mars kl 17.00–23.00  
+29 mars kl 17.00–23.00  
 30 mars kl 14.00-20.00
 
 (Obs! Artist talk 30 mars kl. 17.00 Anders Paulin, Johan Jönsson m.fl.)
 
  *  *  *
 
-*Spelplatser 2025*
-
+*Spelplatser 2025*  
 Skogen, Göteborg (28/2-2/3). Weld, Stockholm (28-30/3). Ställbergs Gruva (tba)
 
  *  *  *
@@ -34,16 +31,13 @@ Cinematograf: Juan-Pedro Fabra Guemberena
 Text, Dramaturgi: Johan Jönson
 
 
-Medverkande:
-
-Jaget (Audio): Ulf Rönnerstrand, Elisa Makarevitch, Johan Jönson
-
-Medborgarkören (Video): Kasia X Michnik, Haky Jasim, Kiarash Dastourband, Carola Björk, Malin McConnachie, Sonja Modin, Elijah Rezai, Ulf Westerberg, Roger Carlsson
-
+Medverkande:  
+Jaget (Audio): Ulf Rönnerstrand, Elisa Makarevitch, Johan Jönson  
+Medborgarkören (Video): Kasia X Michnik, Haky Jasim, Kiarash Dastourband, Carola Björk, Malin McConnachie, Sonja Modin, Elijah Rezai, Ulf Westerberg, Roger Carlsson  
 Negativator/Maskinist: Anders Paulin
 
 
-Samproduktion: Weld, Skogen, Göteborgs konsthall, Ställbergs ruva.
+Samproduktion: Weld, Skogen, Göteborgs konsthall, Ställbergs Gruva.
 Residens på Hägerstensåsens medborgarhus
 
 Med stöd av Konstnärsnämnden.
