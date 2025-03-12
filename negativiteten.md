@@ -42,3 +42,14 @@ Samproduktion: Weld, Skogen, Göteborgs konsthall, Ställbergs Gruva.
 Residens på Hägerstensåsens medborgarhus
 
 Med stöd av Konstnärsnämnden.
+
+* * *
+NEGATIVITETEN is a performative installation based on the book ”ProponeisiS” by the Swedish poet Johan Jönson.
+
+Taking departure from theatre as the architecture of the text, the piece oscillates in a transmedial field between autonomous object and performative time space. A poetic apparatus, simultaneously machine and collective memory, where subjectivity is continuously produced in the relation between singular and collective life experience.
+
+Johan Jönson’s text is lyrical epos; a polyphonic song cycle, in which a combination of poetic sensibility, class perspective, referentiality and rage gives the material a unique resonance and potential. The core of the poetry is a both paradoxical and vital faith in negativity as possibility for a devoted and active making, where the generous affirmation of the depression’s perspective and the uncompromising rejection of false hope creates a path, not out of but into and through the stasis, muteness and lack of exteriority and future that characterizes our time.
+
+A central figure of thought is the contemporary invisibilization of labor, where working life is rendered the abject of urban middle class, that also harbors an emancipatory principle of diligence. The tangible and extensive effort of work that the text means and conditions of writer as well as receiver over time produces an autonomous sphere, beyond the hierarchic ranking of transactional logics, where our commonly invested engagement offers a space in which we can meet on equal terms.
+
+The installation is designed as a cyclical suite with a playing time of about 4.5 hours, and you come and go as you please during opening hours.
