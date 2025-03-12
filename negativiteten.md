@@ -9,7 +9,7 @@ En central tankefigur är vår tids osynliggörandet av arbete, där det arbetan
 
 Installationen är utformad som en cyklisk svit med en speltid på ca 4,5 timmar, och en kommer och går som en vill under öppettiderna.
 
-![](/Negativiteten.PicKör.png) ![](/Negativiteten.PicKör.png)
+![](/Negativiteten.PicKör.png)
 
 **28, 29, 30 mars NEGATIVITETEN på Weld, Stockholm**
 
@@ -43,7 +43,8 @@ Residens på Hägerstensåsens medborgarhus
 
 Med stöd av Konstnärsnämnden.
 
-* * *
+![](/20250228_174602.png)
+
 NEGATIVITETEN is a performative installation based on the book ”ProponeisiS” by the Swedish poet Johan Jönson.
 
 Taking departure from theatre as the architecture of the text, the piece oscillates in a transmedial field between autonomous object and performative time space. A poetic apparatus, simultaneously machine and collective memory, where subjectivity is continuously produced in the relation between singular and collective life experience.
