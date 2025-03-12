@@ -25,5 +25,18 @@ ________________________________________________________________________________
 
 Skogen, Göteborg (28/2-2/3). Weld, Stockholm (28-30/3). Ställbergs Gruva (tba)
 
+ *  *  *
 
+Koncept, Bearbetning, Rum, Musik, Teknik, Produktion: Anders Paulin
+Cinematograf: Juan-Pedro Fabra Guemberena
+Text, Dramaturgi: Johan Jönson
 
+Medverkande:
+Jaget (Audio): Ulf Rönnerstrand, Elisa Makarevitch, Johan Jönson
+Medborgarkören (Video): Kasia X Michnik, Haky Jasim, Kiarash Dastourband, Carola Björk, Malin McConnachie, Sonja Modin, Elijah Rezai, Ulf Westerberg, Roger Carlsson
+Negativator/Maskinist: Anders Paulin
+
+Samproduktion: Weld, Skogen, Göteborgs konsthall, Ställbergs ruva.
+Residens på Hägerstensåsens medborgarhus
+
+Med stöd av Konstnärsnämnden.
