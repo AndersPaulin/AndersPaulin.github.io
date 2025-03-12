@@ -12,7 +12,9 @@ ________________________________________________________________________________
 **28, 29, 30 mars NEGATIVITETEN på Weld, Stockholm**
 
 28 mars kl 17.00–23.00
+
 29 mars kl 17.00–23.00
+
 30 mars kl 14.00-20.00
 
 (Obs! Artist talk 30 mars kl. 17.00 Anders Paulin, Johan Jönsson m.fl.)
@@ -31,6 +33,7 @@ Cinematograf: Juan-Pedro Fabra Guemberena
 Text, Dramaturgi: Johan Jönson
 
 Medverkande:
+
 Jaget (Audio): Ulf Rönnerstrand, Elisa Makarevitch, Johan Jönson
 
 Medborgarkören (Video): Kasia X Michnik, Haky Jasim, Kiarash Dastourband, Carola Björk, Malin McConnachie, Sonja Modin, Elijah Rezai, Ulf Westerberg, Roger Carlsson
