@@ -63,10 +63,10 @@ The installation is designed as a cyclical suite with a playing time of about 4.
 
 ![](/IMG_1239.jpeg)
 
-![](/20250228_174602.png)
+![](/20250228_163040.jpeg)
 
 ![](/IMG_1367.png)
 
 ![](/IMG_1378.png)
 
-![](/20250228_163040.jpeg)
+![](/20250228_174602.png)
