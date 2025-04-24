@@ -55,7 +55,15 @@ A central figure of thought is the contemporary invisibilization of labor, where
 
 The installation is designed as a cyclical suite with a playing time of about 4.5 hours, and you come and go as you please during opening hours.
 
-![](/IMG_1219 (1).jpeg)
+![](/IMG_1219.jpeg)
+
+![](/IMG_1226.jpeg)
+
+![](/IMG_1229.jpeg)
+
+![](/IMG_1239.jpeg)
+
+![](/20250228_163040.jpeg)
 
 ![](/20250228_174602.png)
 
