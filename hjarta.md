@@ -1,8 +1,8 @@
 ![](/hjarta.jpg)
 
-*Trailer:* https://vimeo.com/875938030 
+*Trailer:* https://vimeo.com/1129532776
   
-*Excerpts:* https://vimeo.com/880675507   
+
 
 **HEART OF GLASS**
 
