@@ -9,7 +9,11 @@ En central tankefigur är vår tids osynliggörandet av arbete, där det arbetan
 
 Installationen är utformad som en cyklisk svit med en speltid på ca 4,5 timmar, och en kommer och går som en vill under öppettiderna.
 
-*Video utdrag:*    https://vimeo.com/1129781269
+*Video utdrag:*    
+https://vimeo.com/1130466712
+https://vimeo.com/1130230997
+https://vimeo.com/1130466879
+https://vimeo.com/1130467022
 
 ![](/Negativiteten.PicKör.png)
 
