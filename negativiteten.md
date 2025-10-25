@@ -11,9 +11,13 @@ Installationen är utformad som en cyklisk svit med en speltid på ca 4,5 timmar
 
 *Video utdrag:*    
 https://vimeo.com/1130466712
+
 https://vimeo.com/1130230997
+
 https://vimeo.com/1130466879
+
 https://vimeo.com/1130467022
+
 
 ![](/Negativiteten.PicKör.png)
 
