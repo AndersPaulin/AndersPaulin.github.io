@@ -8,7 +8,6 @@
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
 ## IMORGON/TOMORROW
-[Ivars Tomrum](/Ivars Tomrum.md)  
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)   
 
 ## IGÅR/YESTERDAY
