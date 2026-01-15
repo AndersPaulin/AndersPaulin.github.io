@@ -1,7 +1,7 @@
-NEDRÄKNING
+**NEDRÄKNING**
 
 Iscensättning/Installation av Johan Jönsons bok Nollamorfa
-med Sten Ljunggren, Ulf Rönnerstrand, Juan-Pedro Fabra etc
+*med Sten Ljunggren, Ulf Rönnerstrand, Juan-Pedro Fabra m fl*
 
 Produceras i samarbete med Skogen, Folkets Hus i Kopparberg, Ställbergs Gruva, Weld, Hägerstensåsens Medborgarhus
 
