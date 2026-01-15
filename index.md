@@ -2,19 +2,18 @@
 
 ![](/neithersmall.jpg)
 
-## PRESENT THINGS
+## IDAG/TODAY
 [Negativiteten](/negativiteten.md)  
-[Omelas](/omelas.md)  
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
-## THINGS I'D LIKE TO DO
-[Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
-[Juvelen](/Juvelen.md)  
+## IMORGON/TOMORROW
+[Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)   
 
-## THINGS I HAVE DONE
+## IGÅR/YESTERDAY
 [Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Hjärta av Glas (Heart of Glass)](/hjarta.md)  
+[Omelas](/omelas.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
 [PIM - Para Institutional Models](/pim.md)  
 [I See The Rocky Island Again](/rockyisland.md)  
