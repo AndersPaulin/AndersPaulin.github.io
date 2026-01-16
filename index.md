@@ -12,8 +12,8 @@
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
 
 ## IGÅR/YESTERDAY
-[Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
+[Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Hjärta av Glas (Heart of Glass)](/hjarta.md)  
 [Omelas](/omelas.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
