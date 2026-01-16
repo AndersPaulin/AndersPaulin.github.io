@@ -15,7 +15,7 @@
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Hjärta av Glas (Heart of Glass)](/hjarta.md)  
-[Omelas](/omelas.md) 
+[Omelas](/omelas.md)  
 [Double Feature](/doublefeature.md)  
 [Fiction/Reality](/fictionreality.md)  
 [Parzival](/parzival.md)  
