@@ -19,7 +19,7 @@
 [Double Feature](/doublefeature.md)  
 [Fiction/Reality](/fictionreality.md)  
 [Parzival](/parzival.md)  
-[Villanden (Wild Duck)](/villanden.md) 
+[Villanden (Wild Duck)](/villanden.md)  
 [Twin Figure Of Mimesis](/twinfigureofmimesis.md)  
 [PIM - Para Institutional Models](/pim.md)  
 [I See The Rocky Island Again](/rockyisland.md)   
