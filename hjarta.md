@@ -13,6 +13,7 @@ I det lilla landsbygdssamhället som utgör berättelsens landskap är livets kr
 Föreställningen bygger på en nyskriven text av Emma Palmkvist baserad på Werner Herzogs film, vars struktur och fabel möter research-material som vi samlat in under ett antal residensperioder på olika platser i länet.
 2022-2023 spelas *Hjärta av Glas* på ett flertal olika platser i Gävleborgs i två olika versioner, en site-specific och en non-site.
 
+* * *
 
 **HEART OF GLASS**
 
