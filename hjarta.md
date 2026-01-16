@@ -25,6 +25,7 @@ The story is an exploration of production as phenomenon, understood through its 
 
 The performance is founded on a newly written text by Emma Palmkvist, departing from Werner Herzog's film. In the poetic drama, the basic structure and narrative of the film merges with the research-material collected during a number of local residencies and road trips carried out in Gävleborg county. 2022-2023 *Heart of Glass* has been touring Gävleborg county in two versions, a site-specific and a non-site edition.
 
+* * *
 
 ![](/hjartatalt.jpg)
 
