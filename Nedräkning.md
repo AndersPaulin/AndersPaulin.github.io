@@ -1,5 +1,5 @@
 **NEDRÄKNING**  
-Iscensättning/Installation av Johan Jönsons bok "Nollamorfa"  
+*Iscensättning/Installation av Johan Jönsons bok "Nollamorfa"*  
 
 ![](/Sten.Bild1(small).jpg)  
 
