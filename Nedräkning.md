@@ -9,5 +9,5 @@ medverkande: *Sten Ljunggren, Lena Endre, Johan Jönson, Anders Paulin, Frida R�
 
 cinematografi: *Juan-Pedro Fabra*  
 
-Produceras i samarbete med: *Skogen, Folkets Hus i Kopparberg, Ställbergs Gruva, Weld, Hägerstensåsens Medborgarhus*
+Produceras i samarbete med: *ABF-Stockholm, Skogen, Folkets Hus i Kopparberg, Ställbergs Gruva, Weld*
 
