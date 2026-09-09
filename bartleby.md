@@ -9,5 +9,5 @@ Tematiskt centrum är olika aspekter på det faktum att vi alla ska försvinna, 
 Går det att tänka en politik och rättvisa utan att ha lika mycket respekt inför de döda såväl som de ännu icke födda lika mycket som vi har inför de för närvarande levande?  
 Vad innebär det sett i relation till vår samtids accelerande presentism?  
 Kan ett subjekt ha ett värde i sig självt, utan produktion av mening eller mervärde?  
-Hur skapar språket och jaget varandra.
+Hur skapar språket och jaget varandra?
 
