@@ -3,7 +3,7 @@
 ![](/neithersmall.jpg)
 
 ## IDAG/TODAY
-[Nedräkning](/Nedräkning.md)  
+[Nedräkning](/nedrakning.md)  
 [Negativiteten](/negativiteten.md)  
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
