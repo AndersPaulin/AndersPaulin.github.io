@@ -8,7 +8,8 @@
 [Tibrosamlingen (The Tibro Collection)](/tibro.md)    
 
 ## IMORGON/TOMORROW
-
+[Emily L.] (/emily.md)
+[Bartleby] (/bartleby.md)
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
 
 ## IGÅR/YESTERDAY
