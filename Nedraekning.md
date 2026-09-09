@@ -7,7 +7,7 @@ I ett sjukhusrum följer vi den demenssjuke Kjell resa mot döden. Inom ramen fo
 
 medverkande: *Sten Ljunggren, Lena Endre, Johan Jönson, Anders Paulin, Frida Röhl, Ulf Rönnerstrand, Lena-Pia Bernhardsson, Ylva Olaisson.*  
 
-cinematografi: *Juan-Pedro Fabra*  
+cinematografi: *Juan-Pedro Fabra Guemberena*  
 
 Produceras i samarbete med: *ABF-Stockholm, Skogen, Folkets Hus i Kopparberg, Ställbergs Gruva, Weld*
 
