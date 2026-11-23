@@ -3,16 +3,18 @@
 ![](/neithersmall.jpg)
 
 ## IDAG/TODAY
+[Emily L](/emily.md)  
 [Nedräkning](/nedrakning.md)  
 [Negativiteten](/negativiteten.md)  
-[Tibrosamlingen (The Tibro Collection)](/tibro.md)    
+ 
 
 ## IMORGON/TOMORROW
-[Emily L](/emily.md)  
+
 [Bartleby](/bartleby.md)  
 [Motståndets Melankoli (Melancholy Of Resistance)](/melancholy.md)  
 
 ## IGÅR/YESTERDAY
+[Tibrosamlingen (The Tibro Collection)](/tibro.md)   
 [Three White Soldiers, pt I-III](threewhitesoldiers.ptI-III.md)  
 [Three White Soldiers - The Exhibition](threewhitesoldiersexhibition.md)  
 [Hjärta av Glas (Heart of Glass)](/hjarta.md)  
