@@ -10,10 +10,14 @@ The text on one level tells a story about love, of the relation between gaze, de
 
 Rather than adapting its story, the performance will encounter Duras’s writing as material: rhythms, repetitions, hesitations and silences producing sensations and thoughts of their own. Characters appear without becoming fixed; stories surface and disappear. Acting becomes a practice of listening rather than interpretation. Between love and possession, intimacy and unknowability, words, bodies and images coexist without explaining one another, leaving meaning open to what the spectator sees, hears and imagines.  
 
-![](/Emily6Small.jpg)  
-![](/Emily1Small.jpg)  
-![](/Emily2Small.jpg)  
 ![](/Emily3Small.jpg)  
+
+![](/Emily1Small.jpg)  
+
+![](/Emily2Small.jpg)  
+
 ![](/Emily4Small.jpg)  
+
 ![](/Emily5Small.jpg)  
 
+![](/Emily6Small.jpg)  
