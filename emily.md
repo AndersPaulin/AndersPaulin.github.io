@@ -1,6 +1,6 @@
 **EMILY L.**  
-by Marguerite Duras  
-*19-21 November 2026 Ob/scene Festival, Seoul*  
+*by Marguerite Duras*  
+19-21 November 2026 Ob/scene Festival, Seoul  
 
 **Concept, direction and text adaption:** Anders Paulin  
 **Performers:** Kim Joongyeop, Jeon Hyein, Seoyoung Park, Kim Eunhan  
